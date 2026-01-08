@@ -26,7 +26,7 @@
 2021选秀前，由于蔡斯一年没有比赛，有不少人认为他一年前的数据已经难以作为参考。同时，由于2020赛季有几名非常优秀的外接手的出现，让外接手的位置竞争更加激烈。手握第5签位的猛虎也面临着难题：应该选他们迫切需要改善的进攻锋线位置的球员，还是选择其他位置？此时猛虎队中已经有两名优秀的外接手，所以主流虽然也希望看到LSU的双子星能重聚，但是
 
 
-2021赛季正式开始前，蔡斯在季前赛的表现与他的选秀名称并不匹配，掉球次数比接球次数还多。赛季前的记者会上，菠萝被问道他对于蔡斯季前赛表现的看法，菠萝坚定的表示：我不会担心，我知道他的能力。随后，在赛季正式开始后的第一场比赛中，蔡斯在7次传球中5次接球拿到101码1个达阵，狠狠打了喷子的脸lol。菠萝在赛后的记者会上。此事cbs亦有记载，内含记者会pinky shake一枚。
+2021赛季正式开始前，蔡斯在季前赛的表现与他的选秀名次并不匹配，掉球次数比接球次数还多。赛季前的记者会上，菠萝被问道他对于蔡斯季前赛表现的看法，菠萝坚定的表示：我不会担心，我知道他的能力。随后，在赛季正式开始后的第一场比赛中，蔡斯在7次传球中5次接球拿到101码1个达阵，狠狠打了喷子的脸lol。菠萝在赛后的记者会上调侃蔡斯“差点以为他不会接球了”。此事cbs亦有记载，内含记者会pinky shake一枚。
 
 [right after being drafted to the bengals—[ja'marr went from door-to-door on joe's street](https://nypost.com/2022/02/11/jamarr-chase-went-to-wild-lengths-to-live-near-bengals-teammate-joe-burrow/), asking if anyone was willing to sell their house to him so he could live next to joe (very normal thing to do).](https://nypost.com/2022/02/11/jamarr-chase-went-to-wild-lengths-to-live-near-bengals-teammate-joe-burrow/)
 
