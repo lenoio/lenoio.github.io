@@ -7,13 +7,20 @@
 
 9月8日，LSU对阵Southeastern La.的比赛中，菠萝拿到了在LSU的第一个达阵：传给蔡斯的。
 
-2019赛季，LSU换了传球进攻协调员，从注重跑球的地面进攻为主的传统力量型打法，转型到跑传选项进攻，蔡斯也获得了主力外接手的身份。这一年的LSU的进攻组，被公认为是大学橄榄球的，以15-0的战绩不败夺冠。
-在季后赛决赛中，蔡斯
+2019赛季，LSU换了传球进攻协调员，从注重跑球的地面进攻为主的传统力量型打法，转型到跑传选项进攻，蔡斯也获得了主力外接手的身份。这一年的LSU的进攻组，被公认为是大学橄榄球的天花板，面对史上最难的赛程（7个前10的对手），以15-0的战绩不败夺冠。
+在决赛击败了卫冕冠军克莱蒙森后，破了多项大学橄榄球单赛季记录的菠萝拿到了比赛用球，不管在采访时还是举起奖杯时都拿在手里。
+![Image](https://github.com/user-attachments/assets/d6b316a3-7455-437d-ac0e-2c8466c5cf30)
+![Image](https://github.com/user-attachments/assets/1e6cf0c9-0edc-449f-baac-26b230642d51)
+但是在那天晚上稍晚的视频里，球突然到了哭的稀里哗啦的蔡斯手里。
+![Image](https://github.com/user-attachments/assets/2d03fe55-48b1-40d1-9c36-23773b5cba15)
+![Image](https://github.com/user-attachments/assets/7d69a56a-db8c-47bb-ac18-13c7ea380847)
+并不知情的菠萝爸爸稍后问菠萝比赛用球在哪，他想把球收藏起来的时候，菠萝告爸爸”我把它给了贾马尔“。菠萝的爸爸问他”啥？ 给了贾马尔？ 考虑过你爸爸吗？”然后菠萝说，“爸爸，贾马尔那天接了 150 码，他应得到那个球”。 [此事则是由受害人菠萝爸亲述：有了对象忘了爹啊！](https://www.tumblr.com/ziyechs/796829898673111040/game-ball-saga-pt-3848393929-jimmy-burrow-and?source=share)
+
 2019赛季结束，历史级大学橄榄球表现光环的乔菠萝毫不意外的在nfl选秀中被辛辛那提猛虎队用状元签选中。
 2020赛季，在猛虎的第一年对乔菠萝并不理想，在第九周的比赛中，乔菠萝在一次撞击中左膝acl+mcl，赛季报销。同时在这一年，还在大学的蔡斯由于种种原因选择不参与本赛季比赛，直接参加2021选秀。
 2021选秀前，由于蔡斯一年没有比赛，他的选秀行情
 在
-2021赛季正式开始前，蔡斯在季前赛的表现与他的选秀名称并不匹配，掉球次数比接球次数还多。媒体发布会上，菠萝也被记者问道他对于蔡斯季前赛表现的看法，菠萝坚定的表示：我不会担心，我知道他的能力。
+2021赛季正式开始前，蔡斯在季前赛的表现与他的选秀名称并不匹配，掉球次数比接球次数还多。赛季前的记者会上，菠萝被问道他对于蔡斯季前赛表现的看法，菠萝坚定的表示：我不会担心，我知道他的能力。随后，在赛季正式开始后的第一场比赛中，蔡斯在7次传球中5次接球拿到101码1个达阵，狠狠打了喷子的脸lol。菠萝在赛后的记者会上。此事cbs亦有记载，内含记者会pinky shake一枚。
 
 [right after being drafted to the bengals—[ja'marr went from door-to-door on joe's street](https://nypost.com/2022/02/11/jamarr-chase-went-to-wild-lengths-to-live-near-bengals-teammate-joe-burrow/), asking if anyone was willing to sell their house to him so he could live next to joe (very normal thing to do).](https://nypost.com/2022/02/11/jamarr-chase-went-to-wild-lengths-to-live-near-bengals-teammate-joe-burrow/)
 
