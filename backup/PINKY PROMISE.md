@@ -8,7 +8,8 @@
 2018赛季是他们在LSU的第一年，蔡斯因为刚高中毕业，上场机会不多，两人连线也因此只有二十多次。
 9月2号，常规赛第一场，排名25的LSU对阵排名第8的迈阿密大学，33比17击败了上赛季防守顶尖的迈阿密。这是乔菠萝的第一场首发比赛（在OSU他只作为替补上场过），也是蔡斯的第一场比赛。
 [B站有这场比赛的全场](https://www.bilibili.com/video/BV1TW411Z7PE)，56：13是菠菜的第一次连线，也是他们所有连线的模板：菠萝永远能穿过人群精准的找到蔡斯。在后面的多角度回看时解说一致同意这是个达阵，但因为后面LSU紧接着就达阵了，所以裁判没有回看。
-菠萝在后来的采访中提到了：My first start was his first career college game, we grown together as humans and as players, so we understand each other on a level that is tough to put into words. Just because we've been together for so long since we were kids, so we understand what's doesn't have to be said.我的第一场首发比赛也是他的第一场大学比赛。我们作为球员、也作为朋友一起成长，我们之间的理解默契很难用言语来描述。因为我们从年少时就一直在一起，所以有些事我们不用说就能懂对方。
+菠萝在后来的采访中提到了：My first start was his first career college game, we grown together as humans and as players, so we understand each other on a level that is tough to put into words. Just because we've been together for so long since we were kids, so we understand what's doesn't have to be said.
+**我的第一场首发比赛也是他的第一场大学比赛。我们作为球员、也作为朋友一起成长，我们之间的理解默契很难用言语来描述。因为我们从年少时就一直在一起，所以有些事我们不用说就能懂对方。**
 
 9月8日，LSU对阵Southeastern La.的比赛中，蔡斯接到了自己的第一个大学达阵，也是菠萝在LSU的第一个达阵：。
 
@@ -20,6 +21,7 @@ LSU时期，有记者采访主力外接手三人组时，问了一个问题：�
 JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后马歇尔选择了蔡斯：“我不知道啊，他给蔡斯传球老多了，太多了！”然后蔡斯开始尴尬、谜之害羞的大笑……
 我请问在害羞什么呢？他的四分卫比他大三岁，比他多打两年比赛。蔡斯只和菠萝打过，但菠萝在OSU就和所以其实并不确定。~~这里还有个很好品的点是，其实JJ接球次数比蔡斯多三分之一，但马歇尔觉得菠萝更喜欢给蔡斯扔球，为什么？蔡斯在LSU主要跑深远路线，JJ主要跑近距离，远距离天生更难传。问看过那年LSU的人，他们会告诉你，有时候其实JJ的机会比蔡斯更好，更open，旁边没有人，但菠萝仍然会选择传给蔡斯。~~
 
+
 ### 决赛用球去哪了？
 在决赛击败了卫冕冠军克莱蒙森后，破了多项大学橄榄球单赛季记录的菠萝拿到了比赛用球，不管在采访时还是举起奖杯时都一直拿在手里。
 ![Image](https://github.com/user-attachments/assets/d6b316a3-7455-437d-ac0e-2c8466c5cf30)
@@ -30,6 +32,7 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 稍后，毫不知情的菠萝爸爸问菠萝比赛用球在哪，他想把球收藏起来的时候，菠萝告爸爸”我把它给了贾马尔“。菠萝的爸爸问他”啥？ 给了贾马尔？ 你有没有想过老爸会想要这个球吗？”然后菠萝说，“爸爸，贾马尔那天接了 150 码，他应得到那个球”。 [此事由受害人菠萝爸亲述：有了对象忘了爹啊！](https://www.tumblr.com/ziyechs/796829898673111040/game-ball-saga-pt-3848393929-jimmy-burrow-and?source=share)
 [关于这个球怎么到蔡斯手中更详细的考据、视频请参考](https://www.tumblr.com/ziyechs/796829530107117568/follow-up-to-this-excellent-post-by?source=share)
 
+<hr>
 # 选秀
 2019赛季结束，戴着历史级大学橄榄球表现光环的乔菠萝在2020nfl选秀中，毫不意外的被辛辛那提猛虎队用状元签选中。众所周知，能拿状元签的都是上赛季实（倒）力（一）队伍。
 
@@ -62,6 +65,7 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 [更多考据](https://www.tumblr.com/cementcornfield/771979115351949312/upon-doing-further-research-it-looks-like-jamarr?source=share)
 
 
+<hr>
 # nfl时期
 2021赛季正式开始前，蔡斯在季前赛的表现与他的选秀名次并不匹配，掉球次数比接球次数还多。赛季前的记者会上，菠萝被问道他对于蔡斯季前赛表现的看法，菠萝坚定的表示：我不会担心，我知道他的能力。随后，在赛季正式开始后的第一场比赛中，蔡斯在7次传球中5次接球拿到101码1个达阵，狠狠打了喷子的脸lol。菠萝在赛后的记者会上调侃蔡斯“差点以为他不会接球了”。此事cbs亦有记载，内含记者会pinky shake一枚。
 [更多详见](https://www.tumblr.com/cementcornfield/756551591985856512/a-retrospective-on-jamarrs-rough-rookie?source=share)
