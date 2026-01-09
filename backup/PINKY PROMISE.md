@@ -2,6 +2,7 @@
 
 2018年，在橄榄球名校OSU（俄亥俄州立大学，当时全国排名第5）竞争首发四分卫失败的乔菠萝收到了LSU的主教练的邀请，转学到了LSU（路易斯安那州立大学，当时全国排名25）。同年，蔡斯作为四星高中生（是的老美就是用这么中二的方式给高中毕业生天赋分级的，五星最高，全国每年评32个五星高中生）进入LSU。虽然同为历史悠久的橄榄球名校，但LSU前几年成绩并不突出，六年没进过前10。
 不过没关系，LSU即将组建一支被很多人心中的史上最强大学橄榄球球队。
+
 2018赛季是他们在LSU的第一年，蔡斯因为刚高中毕业，上场机会不多，两人连线也因此只有二十多次。
 9月2号，常规赛第一场，排名25的LSU对阵排名第8的迈阿密大学，33比17击败了上赛季防守顶尖的迈阿密。这是乔菠萝的第一场首发比赛（在OSU他只作为替补上场过），也是蔡斯的第一场比赛。菠萝在后来的采访中提到了：My first start was his first career college game, we grown together as humans and as players, so we understand each other on a level that is tough to put into words. Just because we've been together for so long since we were kids, so we understand what's doesn't have to be said.我的第一场首发比赛也是他的第一场大学比赛。我们作为球员、也作为朋友一起成长，我们之间的理解默契很难用言语来描述。因为我们从年少时就一直在一起，所以有些事我们不用说就能懂对方。
 [B站有这场比赛的全场](https://www.bilibili.com/video/BV1TW411Z7PE)，56：13是菠菜的第一次连线，也是他们所有连线的模板：菠萝永远能穿过人群精准的找到蔡斯。在后面的多角度回看时解说一致同意这是个达阵，但因为后面LSU紧接着就达阵了，所以裁判没有回看。
@@ -10,6 +11,7 @@
 
 2019赛季，LSU换了传球进攻协调员，从注重跑球的地面进攻为主的传统力量型打法，转型到跑传选项进攻，蔡斯也获得了主力外接手的身份。这一年的LSU的进攻组，被公认为是大学橄榄球的天花板，面对史上最难的赛程（7个前10的对手），以15-0的战绩不败夺冠。
 ![Image](https://github.com/user-attachments/assets/b769d2bf-b7fe-4a39-bd13-7f824a6fdc18)
+
 在决赛击败了卫冕冠军克莱蒙森后，破了多项大学橄榄球单赛季记录的菠萝拿到了比赛用球，不管在采访时还是举起奖杯时都拿在手里。
 ![Image](https://github.com/user-attachments/assets/d6b316a3-7455-437d-ac0e-2c8466c5cf30)
 ![Image](https://github.com/user-attachments/assets/1e6cf0c9-0edc-449f-baac-26b230642d51)
@@ -27,7 +29,7 @@
 
 
 
-[在被孟加拉虎选中之后，蔡斯就开始在 Joe 所住的那条街挨家挨户敲门，问有没有人愿意把房子卖给他，好让他能住在 菠萝隔壁（非常正常的行为）。](https://nypost.com/2022/02/11/jamarr-chase-went-to-wild-lengths-to-live-near-bengals-teammate-joe-burrow/), asking if anyone was willing to sell their house to him so he could live next to joe (very normal thing to do).]
+[在被孟加拉虎选中之后，蔡斯就去菠萝住的那条街挨家挨户敲门，问有没有人愿意把房子卖给他，好让他能住在菠萝隔壁（非常正常的行为）。](https://nypost.com/2022/02/11/jamarr-chase-went-to-wild-lengths-to-live-near-bengals-teammate-joe-burrow/)
 翻译：
 Ja’Marr Chase 真的、真的很想住在 Joe Burrow 附近。
 这位外接手和四分卫不仅是最好的朋友、大学时期的队友，现在还即将一起代表孟加拉虎出战 2022 年超级碗。
@@ -40,9 +42,7 @@ Ja’Marr Chase 真的、真的很想住在 Joe Burrow 附近。
 “他基本就是挨家挨户地说：‘你好，我是 Ja’Marr Chase。我很有钱，我想买你的房子。’
 最后还真让他找到了愿意卖的人，现在他们成邻居了。”
 这做法当然算得上相当奢侈，但说实话——谁又能责怪 Chase 想住在自己最好的朋友旁边呢？
-【在被孟加拉虎选中之后的第一时间——
-Ja’Marr 就开始在 Joe 所住的那条街挨家挨户敲门，
-问有没有人愿意把房子卖给他，好让他能住在 Joe 隔壁（非常正常的行为）。】
+
 
 而且不止一次。
 2023 年，菠萝签了新合同，拿到联盟顶薪之一后，搬到了一栋新豪宅之后，蔡斯又一次搬到了他隔壁。[(由蔡斯本人认证)](https://www.tumblr.com/realtapiocafan/771978337993326592/joe-is-still-neighbors-with-jamarr?source=share):
