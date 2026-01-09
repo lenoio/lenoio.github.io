@@ -8,8 +8,8 @@
 2018赛季是他们在LSU的第一年，蔡斯因为刚高中毕业，上场机会不多，两人连线也因此只有二十多次。
 9月2号，常规赛第一场，排名25的LSU对阵排名第8的迈阿密大学，33比17击败了上赛季防守顶尖的迈阿密。这是乔菠萝的第一场首发比赛（在OSU他只作为替补上场过），也是蔡斯的第一场比赛。
 [B站有这场比赛的全场](https://www.bilibili.com/video/BV1TW411Z7PE)，56：13是菠菜的第一次连线，也是他们所有连线的模板：菠萝永远能穿过人群精准的找到蔡斯。在后面的多角度回看时解说一致同意这是个达阵，但因为后面LSU紧接着就达阵了，所以裁判没有回看。
-菠萝在后来的采访中提到了：My first start was his first career college game, we grown together as humans and as players, so we understand each other on a level that is tough to put into words. Just because we've been together for so long since we were kids, so we understand what's doesn't have to be said.
-**我的第一场首发比赛也是他的第一场大学比赛。我们作为球员、也作为朋友一起成长，我们之间的理解默契很难用言语来描述。因为我们从年少时就一直在一起，所以有些事我们不用说就能懂对方。**
+菠萝在后来的采访中说：“My first start was his first career college game, we grown together as humans and as players, so we understand each other on a level that is tough to put into words. Just because we've been together for so long since we were kids, so we understand what's doesn't have to be said.”
+*我的第一场首发比赛也是他的第一场大学比赛。我们作为球员、也作为朋友一起成长，我们之间的理解默契很难用言语来描述。因为我们从年少时就一直在一起，所以有些事我们不用说就能懂对方。*
 
 9月8日，LSU对阵Southeastern La.的比赛中，蔡斯接到了自己的第一个大学达阵，也是菠萝在LSU的第一个达阵：。
 
