@@ -21,7 +21,23 @@
 ![Image](https://github.com/user-attachments/assets/ac53202a-a73d-4e88-8311-caf4d3aeee22)
 ![Image](https://github.com/user-attachments/assets/7ecbf7b2-1973-4c3f-8da1-7aec7993cc95)
 
+<div style="position: relative; width: 100%; height: 0; padding-bottom: 56.25%;">
+    <iframe src="https://player.bilibili.com/player.html?bvid=BV1Vg4y1A7yH&page=1&as_wide=1" 
+        style="position: absolute; width: 100%; height: 100%; left: 0; top: 0;" 
+        scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true">
+    </iframe>
+</div>
 
+BV1Vg4y1A7yH
+
+<iframe src="https://player.bilibili.com/player.html?bvid=BV1Vg4y1A7yH&page=1&high_quality=1&as_wide=1&allowfullscreen=true" 
+    scrolling="no" 
+    border="0" 
+    frameborder="no" 
+    framespacing="0" 
+    allowfullscreen="true" 
+    style="width: 100%; height: 500px;">
+</iframe>
 
 
 
