@@ -5,10 +5,11 @@
 2018年，在橄榄球名校OSU（俄亥俄州立大学，当时全国排名第5）竞争首发四分卫失败的乔菠萝收到了LSU的主教练的邀请，转学到了LSU（路易斯安那州立大学，当时全国排名25）。同年，蔡斯作为四星高中生（是的老美就是用这么中二的方式给高中毕业生天赋分级的，五星最高，全国每年评32个五星高中生）进入LSU。虽然同为历史悠久的橄榄球名校，但LSU前几年成绩并不突出，六年没进过前10。
 不过没关系，LSU即将组建一支被很多人心中的史上最强大学橄榄球球队。
 
-2018赛季是他们在LSU的第一年，蔡斯因为刚高中毕业，上场机会不多，两人连线也因此只有二十多次。
+**2018赛季**是他们在LSU的第一年，蔡斯因为刚高中毕业，上场机会不多，两人连线也因此只有二十多次。
+
+### 他接住了我的第一个达阵
 9月2号，常规赛第一场，排名25的LSU对阵排名第8的迈阿密大学，33比17击败了上赛季防守顶尖的迈阿密。这是乔菠萝的第一场首发比赛（在OSU他只作为替补上场过），也是蔡斯的第一场比赛。
 [B站有这场比赛的全场](https://www.bilibili.com/video/BV1TW411Z7PE)，56：13是菠菜的第一次连线，也是他们所有连线的模板：菠萝永远能穿过人群精准的找到蔡斯。在后面的多角度回看时解说一致同意这是个达阵，但因为后面LSU紧接着就达阵了，所以裁判没有回看。
-
 
 >菠萝在后来的采访中说：
 **My first start was his first career college game, we grown together as humans and as players, so we understand each other on a level that is tough to put into words. Just because we've been together for so long since we were kids, so we understand what's doesn't have to be said.**
@@ -16,7 +17,7 @@
 
 9月8日，LSU对阵Southeastern La.的比赛中，蔡斯接到了自己的第一个大学达阵，也是菠萝在LSU的第一个达阵：。
 
-2019赛季，LSU换了传球进攻协调员，从注重跑球的地面进攻为主的传统力量型打法，转型到跑传选项进攻，蔡斯也获得了主力外接手的身份。这一年的LSU的进攻组，被公认为是大学橄榄球的天花板，面对史上最难的赛程（7个前10的对手），以15-0的战绩不败夺冠。
+**2019赛季**，LSU换了传球进攻协调员，从注重跑球的地面进攻为主的传统力量型打法，转型到跑传选项进攻，蔡斯也获得了主力外接手的身份。这一年的LSU的进攻组，被公认为是大学橄榄球的天花板，面对史上最难的赛程（7个前10的对手），以15-0的战绩不败夺冠。
 ![Image](https://github.com/user-attachments/assets/2e348f29-0f77-458d-bc65-88eb6b9edd00)
 ![Image](https://github.com/user-attachments/assets/b769d2bf-b7fe-4a39-bd13-7f824a6fdc18)
 
@@ -43,7 +44,8 @@ jimmy b: “i figured!”**
 菠萝爸爸：我就知道！*
 
 [有了对象忘了爹啊！](https://www.tumblr.com/ziyechs/796829898673111040/game-ball-saga-pt-3848393929-jimmy-burrow-and?source=share)
-[关于这个球怎么到蔡斯手中更详细的考据、视频请参考](https://www.tumblr.com/ziyechs/796829530107117568/follow-up-to-this-excellent-post-by?source=share)
+
+[更多视频考据请点击](https://www.tumblr.com/ziyechs/796829530107117568/follow-up-to-this-excellent-post-by?source=share)
 
 
 
@@ -53,7 +55,7 @@ jimmy b: “i figured!”**
 
 2019赛季结束，戴着历史级大学橄榄球表现光环的乔菠萝在2020nfl选秀中，毫不意外的被辛辛那提猛虎队用状元签选中。众所周知，能拿状元签的都是上赛季实（倒）力（一）队伍。
 
-2020赛季，在猛虎的第一年对乔菠萝并不理想，在第九周的比赛中，乔菠萝在一次撞击中左膝acl+mcl，赛季报销。同时在这一年，还在大学的蔡斯由于种种原因选择不参与本赛季比赛，直接参加2021选秀。
+**2020赛季**，在猛虎的第一年对乔菠萝并不理想，在第九周的比赛中，乔菠萝在一次撞击中左膝acl+mcl，赛季报销。同时在这一年，还在大学的蔡斯由于种种原因选择不参与本赛季比赛，直接参加2021选秀。
 2021选秀前，很多球迷希望看到LSU的双子星能重聚，但是从合理补强弱点的角度看，猛虎第一轮不应该选蔡斯，而他几乎不可能被留第二轮。
 <details>
 <summary>为什么很多人认为猛虎不会选蔡斯？</summary>
@@ -85,7 +87,7 @@ jimmy b: “i figured!”**
 
 ## nfl时期
 
-2021赛季正式开始前，蔡斯在季前赛的表现与他的选秀名次并不匹配，掉球次数比接球次数还多。赛季前的记者会上，菠萝被问道他对于蔡斯季前赛表现的看法，菠萝坚定的表示：我不会担心，我知道他的能力。随后，在赛季正式开始后的第一场比赛中，蔡斯在7次传球中5次接球拿到101码1个达阵，狠狠打了喷子的脸lol。菠萝在赛后的记者会上调侃蔡斯“差点以为他不会接球了”。此事cbs亦有记载，内含记者会pinky shake一枚。
+**2021赛季**正式开始前，蔡斯在季前赛的表现与他的选秀名次并不匹配，掉球次数比接球次数还多。赛季前的记者会上，菠萝被问道他对于蔡斯季前赛表现的看法，菠萝坚定的表示：我不会担心，我知道他的能力。随后，在赛季正式开始后的第一场比赛中，蔡斯在7次传球中5次接球拿到101码1个达阵，狠狠打了喷子的脸lol。菠萝在赛后的记者会上调侃蔡斯“差点以为他不会接球了”。此事cbs亦有记载，内含记者会pinky shake一枚。
 [更多详见](https://www.tumblr.com/cementcornfield/756551591985856512/a-retrospective-on-jamarrs-rough-rookie?source=share)
 
 ### 
@@ -98,23 +100,20 @@ jimmy b: “i figured!”**
 ![Image](https://github.com/user-attachments/assets/bd0f8fa4-e105-4d08-8d5b-14fd71067604)
 
 ### 他穿过的队服
-2022赛季，猛虎客场对阵新奥尔良圣徒，菠萝和蔡斯LSU毕业后第一次回到路易斯安那打球。菠萝穿着蔡斯的2019cfb决赛时**穿过的比赛衣服**出现在球场……~~到底什么人会穿队友穿过的比赛服去队友老家啊？而且为什么菠萝会有蔡斯这件衣服啊？菠萝收藏了吗还是临时和蔡斯要的？哪种都很可疑好吗！~~
+**2022赛季**，猛虎客场对阵新奥尔良圣徒，菠萝和蔡斯LSU毕业后第一次回到路易斯安那打球。菠萝穿着蔡斯的2019cfb决赛时**穿过的比赛衣服**出现在球场……~~到底什么人会穿队友穿过的比赛服去队友老家啊？而且为什么菠萝会有蔡斯这件衣服啊？菠萝收藏了吗还是临时和蔡斯要的？哪种都很可疑好吗！~~
 <div align="center">
   <img src="https://github.com/user-attachments/assets/edacf462-e123-4254-8d0d-bb6a55f1597d" width="48%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
   <img src="https://github.com/user-attachments/assets/2041eceb-3cef-44fc-8497-12db7dd01259" width="48%" alt="蔡斯在cfb决赛">
 </div>
 
-这场比赛后，菠萝被记者问道了穿蔡斯的比赛服：
+这场比赛后，菠萝被记者问了穿蔡斯的比赛服：
 
 ![Image](https://github.com/user-attachments/assets/8fb5d5cd-1d21-4150-8649-4a78af60bb54)
 
 
-### We locked eyes
-![Image](https://github.com/user-attachments/assets/cd1c6846-802b-49c2-bdd3-f7821cb85fc4)
-
 
 ### Donut smash!
-24赛季，第周的比赛刚好是菠萝的生日。在客场险胜达拉斯牛仔队后，让我们一起欢迎名场面：甜甜圈糊脸
+24赛季，猛虎第14周的比赛刚好是菠萝的生日。在客场险胜达拉斯牛仔队后，让我们一起欢迎名场面：甜甜圈糊脸
 <div align="center">
   <img src="https://github.com/user-attachments/assets/5e4daded-a6d1-4444-85fd-9a23cd3f43a0" width="99%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
   <img src="https://github.com/user-attachments/assets/e98086ec-14e4-478b-85d9-450cd80fe1ba" width="99%" alt="蔡斯在cfb决赛">
@@ -143,6 +142,12 @@ jimmy b: “i figured!”**
 别忘了这个拥抱
 
 
+
+### We locked eyes
+![Image](https://github.com/user-attachments/assets/cd1c6846-802b-49c2-bdd3-f7821cb85fc4)
+
+
+
 ### 蔡斯会续约吗？
 
 ![Image](https://github.com/user-attachments/assets/0919a7d6-e190-4344-9342-dc4bed0fa997)
@@ -154,6 +159,8 @@ jimmy b: “i figured!”**
 *-乔昨天说，你们两个人的职业生涯会永远紧密相连，你同意这种说法吗？你有什么想法？
 -嗯，这是事实。我当然同意他。特别是考虑到我们已经在一起待了——我有时候都记不清了——六年了吧？还是七年了？所以，我们只会越来越好。”*
 
+
+
 ### 不，爸爸我要和乔在一起，我不会去任何其他队
 
 >**—Final thing for you two guys and i appreciate your time. i think bengals fans want to know: should we feel confident that joe and ja’marr are going to be nfl teammates for a long, long time?
@@ -161,8 +168,10 @@ jimmy b: “i figured!”**
 *—感谢你们接受采访，最后一个问题。我想猛虎队（Bengals）的球迷们想知道：我们是否应该相信乔（Joe Burrow）和贾马尔（Ja’Marr Chase）会很长、很长一段时间都是 NFL 的队友？
 — 嗯，我当然希望他们能一直在一起，我觉得贾马尔也是这么想的。有一次我跟他聊天，我说："你知道，这是 NFL，是商业联盟。所以，你有可能会离开，去其他四分卫打球。"结果他说："不，爸爸，我要和乔在一起，我不会去任何其他队。"*
 
+记者也问过菠萝类似的问题
 
 ![Image](https://github.com/user-attachments/assets/b96c4a78-a63d-41df-a0fc-25e7d3436d13)
+>**
 
 <hr>
 
@@ -202,15 +211,18 @@ jimmy b: “i figured!”**
 
 
 
+![Image](https://github.com/user-attachments/assets/56c46404-44b8-4b32-825d-09211833c742)
 ![Image](https://github.com/user-attachments/assets/967533c1-8de2-48b5-8f78-43c2b7ba506e)
 ![Image](https://github.com/user-attachments/assets/e38132ff-a947-4c70-bcc7-ed8992d81b59)
 ![Image](https://github.com/user-attachments/assets/c68d4037-c61a-450e-b3ef-aee8fc5beaaa)
 ![Image](https://github.com/user-attachments/assets/f59daee2-96b9-4b14-a0f7-da0af24ae6da)
+
+
+只要看到
 ![Image](https://github.com/user-attachments/assets/f604a947-f2b2-4865-9d23-8a12b76bb451)
 ![Image](https://github.com/user-attachments/assets/3c10d6da-8423-4ba3-b65a-a22e2d5c3d0c)
 ![Image](https://github.com/user-attachments/assets/a8f05d45-ee7b-48ee-814b-41b82568d482)
-![Image](https://github.com/user-attachments/assets/56c46404-44b8-4b32-825d-09211833c742)
-![Image](https://github.com/user-attachments/assets/dd2ced7f-50bb-418b-a595-bf437b62e28c)
+
 ![Image](https://github.com/user-attachments/assets/00a00ba3-08b6-42ad-8e09-1ba9e7659e7b)
 ![Image](https://github.com/user-attachments/assets/63ac1d94-aaed-4961-acef-56545ce8f503)
 <img width="1088" height="536" alt="Image" src="https://github.com/user-attachments/assets/b9c0dd8e-0aa5-4f15-8770-cfeb37cc62dc" />
@@ -228,6 +240,6 @@ jimmy b: “i figured!”**
 ![Image](https://github.com/user-attachments/assets/b9a3eb29-3b1f-4074-b4a5-17bc6e2b86b8)
 
 
-
+![Image](https://github.com/user-attachments/assets/dd2ced7f-50bb-418b-a595-bf437b62e28c)
 
 
