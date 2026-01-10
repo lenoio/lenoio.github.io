@@ -17,6 +17,7 @@
 9月8日，LSU对阵Southeastern La.的比赛中，蔡斯接到了自己的第一个大学达阵，也是菠萝在LSU的第一个达阵：。
 
 2019赛季，LSU换了传球进攻协调员，从注重跑球的地面进攻为主的传统力量型打法，转型到跑传选项进攻，蔡斯也获得了主力外接手的身份。这一年的LSU的进攻组，被公认为是大学橄榄球的天花板，面对史上最难的赛程（7个前10的对手），以15-0的战绩不败夺冠。
+![Image](https://github.com/user-attachments/assets/2e348f29-0f77-458d-bc65-88eb6b9edd00)
 ![Image](https://github.com/user-attachments/assets/b769d2bf-b7fe-4a39-bd13-7f824a6fdc18)
 
 ### 乔最喜欢谁？
@@ -88,8 +89,13 @@ jimmy b: “i figured!”**
 [更多详见](https://www.tumblr.com/cementcornfield/756551591985856512/a-retrospective-on-jamarrs-rough-rookie?source=share)
 
 ### 
+
+加时击败酋长，加冕AFC冠军
+![Image](https://github.com/user-attachments/assets/722cbc1a-60b3-4241-8dc6-c64d96700642)
+
 >**So when they went to the super bowl, Ja'Marr Chase reached out to me one week before the super bowl and said "Hey, I wanna get Joe diamond grills for the super bowl. He promised us that when we won the national championship he'd get a gold grill, but here we are in the super bowl and I want to get him a gift, I want to get him a diamond grill."**
 *他们打进超级碗的时候，蔡斯在超级碗前一周联系了我，说：嘿，我想给乔弄个牙钻。他之前（大学时候）答应我，我们赢了全国冠军，他会送我一副金牙套。现在我们进超级碗了，我也想送他个礼物，我想送他个镶钻牙套。’”*
+![Image](https://github.com/user-attachments/assets/bd0f8fa4-e105-4d08-8d5b-14fd71067604)
 
 ### 他穿过的队服
 2022赛季，猛虎客场对阵新奥尔良圣徒，菠萝和蔡斯LSU毕业后第一次回到路易斯安那打球。菠萝穿着蔡斯的2019cfb决赛时**穿过的比赛衣服**出现在球场……~~到底什么人会穿队友穿过的比赛服去队友老家啊？而且为什么菠萝会有蔡斯这件衣服啊？菠萝收藏了吗还是临时和蔡斯要的？哪种都很可疑好吗！~~
@@ -103,21 +109,35 @@ jimmy b: “i figured!”**
 ![Image](https://github.com/user-attachments/assets/8fb5d5cd-1d21-4150-8649-4a78af60bb54)
 
 
+### We locked eyes
+![Image](https://github.com/user-attachments/assets/cd1c6846-802b-49c2-bdd3-f7821cb85fc4)
 
 
 ### Donut smash!
 24赛季，第周的比赛刚好是菠萝的生日。在客场险胜达拉斯牛仔队后，让我们一起欢迎名场面：甜甜圈糊脸
 
+![Image](https://github.com/user-attachments/assets/46dbfc5f-4d3c-4f8e-b7ad-55b267cae55a)
+![Image](https://github.com/user-attachments/assets/8d951b66-4236-45f3-9ae3-732f630bb10c)
+![Image](https://github.com/user-attachments/assets/5e4daded-a6d1-4444-85fd-9a23cd3f43a0)
+![Image](https://github.com/user-attachments/assets/e98086ec-14e4-478b-85d9-450cd80fe1ba)
+网飞纪录片角度：
 ![Image](https://github.com/user-attachments/assets/cfdc2c40-a592-41e3-a5b4-b0673c076b68)
 ![Image](https://github.com/user-attachments/assets/770db36a-3143-4919-b414-a7f69355bb01)
 ![Image](https://github.com/user-attachments/assets/88d5098d-9b87-40fe-bc9a-52a4188cf34d)
 ![Image](https://github.com/user-attachments/assets/f87f033c-0e7e-4dbd-bfe7-7cab1df95898)
 ![Image](https://github.com/user-attachments/assets/df75c84f-c7c5-43d1-9686-bb9bb6694631)
 
+<img width="1903" height="1050" alt="Image" src="https://github.com/user-attachments/assets/33071406-dddb-4353-bdef-fe3f06c8a11e" />
+![Image](https://github.com/user-attachments/assets/255bf5b7-0665-48d1-b1f5-074c472fe8bd)
 别忘了这个拥抱
 
 
 ### 蔡斯会续约吗？
+
+![Image](https://github.com/user-attachments/assets/0919a7d6-e190-4344-9342-dc4bed0fa997)
+续约后的拥抱
+![Image](https://github.com/user-attachments/assets/b637769a-5e29-46ff-a1ce-3d0341093e9b)
+
 >**-Joe said yesterday your two careers are always gonna be tied forever, do you agree with that and what's your view of that?
 -Nah, it's a fact. I can say I could agree with that. Especially since we've been together what —— I'm starting to lose count now —— like six years now? Seven years now? So we're only going to get better from here....**
 *-乔昨天说，你们两个人的职业生涯会永远紧密相连，你同意这种说法吗？你有什么想法？
@@ -130,6 +150,8 @@ jimmy b: “i figured!”**
 *—感谢你们接受采访，最后一个问题。我想猛虎队（Bengals）的球迷们想知道：我们是否应该相信乔（Joe Burrow）和贾马尔（Ja’Marr Chase）会很长、很长一段时间都是 NFL 的队友？
 — 嗯，我当然希望他们能一直在一起，我觉得贾马尔也是这么想的。有一次我跟他聊天，我说："你知道，这是 NFL，是商业联盟。所以，你有可能会离开，去其他四分卫打球。"结果他说："不，爸爸，我要和乔在一起，我不会去任何其他队。"*
 
+
+![Image](https://github.com/user-attachments/assets/b96c4a78-a63d-41df-a0fc-25e7d3436d13)
 
 <hr>
 
@@ -160,18 +182,17 @@ jimmy b: “i figured!”**
 一次是在他们第一个赛季战胜热门强队酋长，拿到分区冠军比赛后的媒体会
 ![Image](https://github.com/user-attachments/assets/3a2f42a0-41ef-4cc2-9689-a3a146eeea75)
 
-一次，是在蔡斯拿到
-
+一次，是在蔡斯拿到最佳进攻组新秀
+![Image](https://github.com/user-attachments/assets/36d4bf69-14b3-40b7-bd4f-b93c47f34349)
 
 [Did we ever figure out if Ja'marr actually buy clothes for Joe?](https://www.tumblr.com/chasedeys/773982107622047744/new-to-joemarr-and-i-have-a-question-did-we-ever?source=share)
 
 
 
-![Image](https://github.com/user-attachments/assets/cd1c6846-802b-49c2-bdd3-f7821cb85fc4)
-![Image](https://github.com/user-attachments/assets/b9a3eb29-3b1f-4074-b4a5-17bc6e2b86b8)
-![Image](https://github.com/user-attachments/assets/b96c4a78-a63d-41df-a0fc-25e7d3436d13)
-![Image](https://github.com/user-attachments/assets/2e348f29-0f77-458d-bc65-88eb6b9edd00)
-![Image](https://github.com/user-attachments/assets/0919a7d6-e190-4344-9342-dc4bed0fa997)
+
+
+
+
 ![Image](https://github.com/user-attachments/assets/967533c1-8de2-48b5-8f78-43c2b7ba506e)
 ![Image](https://github.com/user-attachments/assets/e38132ff-a947-4c70-bcc7-ed8992d81b59)
 ![Image](https://github.com/user-attachments/assets/c68d4037-c61a-450e-b3ef-aee8fc5beaaa)
@@ -192,15 +213,12 @@ jimmy b: “i figured!”**
 <img width="1024" height="743" alt="Image" src="https://github.com/user-attachments/assets/0d91bb01-a21e-4019-9948-220ee232dd12" />
 ![Image](https://github.com/user-attachments/assets/d46c2f88-768b-4dbc-b41b-79b58a21bfa1)
 ![Image](https://github.com/user-attachments/assets/f847df78-4e99-46ef-8d70-403dbd12accb)
-<img width="1903" height="1050" alt="Image" src="https://github.com/user-attachments/assets/33071406-dddb-4353-bdef-fe3f06c8a11e" />
-![Image](https://github.com/user-attachments/assets/255bf5b7-0665-48d1-b1f5-074c472fe8bd)
-![Image](https://github.com/user-attachments/assets/bd0f8fa4-e105-4d08-8d5b-14fd71067604)
-![Image](https://github.com/user-attachments/assets/722cbc1a-60b3-4241-8dc6-c64d96700642)
-![Image](https://github.com/user-attachments/assets/b637769a-5e29-46ff-a1ce-3d0341093e9b)
-![Image](https://github.com/user-attachments/assets/36d4bf69-14b3-40b7-bd4f-b93c47f34349)
 
-![Image](https://github.com/user-attachments/assets/46dbfc5f-4d3c-4f8e-b7ad-55b267cae55a)
-![Image](https://github.com/user-attachments/assets/8d951b66-4236-45f3-9ae3-732f630bb10c)
-![Image](https://github.com/user-attachments/assets/5e4daded-a6d1-4444-85fd-9a23cd3f43a0)
-![Image](https://github.com/user-attachments/assets/e98086ec-14e4-478b-85d9-450cd80fe1ba)
+
+最后，让全世界祝福菠菜早日拿戒指：
+![Image](https://github.com/user-attachments/assets/b9a3eb29-3b1f-4074-b4a5-17bc6e2b86b8)
+
+
+
+
 
