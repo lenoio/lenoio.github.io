@@ -11,10 +11,10 @@ https://www.tumblr.com/realtapiocafan/795516338355470337/two-days-after-beating-
 
 
 
+[lsu era jjmarr were so cute...](https://www.tumblr.com/realtapiocafan/800894564922753024?source=share)
 
+[you should see me in a crown](https://www.tumblr.com/realtapiocafan/776483774713167872?source=share)
 
+[baby jjmarr are too cute i wish they could stay in college forever](https://www.tumblr.com/softwoodbird/772571230173839360?source=share)
 
-
-
-
-
+(now kiss)[https://www.tumblr.com/realtapiocafan/791453611015225344?source=share]
