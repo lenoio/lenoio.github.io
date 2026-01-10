@@ -97,7 +97,6 @@ jimmy b: “i figured!”**
 蔡斯达阵后，菠萝冲向蔡斯拥抱他
 
 ![Image](https://github.com/user-attachments/assets/5b3a9315-95bf-44c1-9329-68a21d737c2f)
-<img width="724" height="481" alt="Image" src="https://github.com/user-attachments/assets/ca3371fc-f3a6-4ce5-bb2e-ce6f90a7ec5d" />
 
 菠萝在赛后的记者会上调侃蔡斯“差点以为他不会接球了”。此事cbs亦有记载，内含记者会pinky shake一枚。
 [更多详见](https://www.tumblr.com/cementcornfield/756551591985856512/a-retrospective-on-jamarrs-rough-rookie?source=share)
@@ -136,8 +135,8 @@ jimmy b: “i figured!”**
 
 ### That's all you baby
 
-![Image](https://github.com/user-attachments/assets/5b3a9315-95bf-44c1-9329-68a21d737c2f)
-<img width="724" height="481" alt="Image" src="https://github.com/user-attachments/assets/ca3371fc-f3a6-4ce5-bb2e-ce6f90a7ec5d" />
+![Image](https://github.com/user-attachments/assets/6b81f2b4-c00c-4313-82ab-9073811459a3)
+
 
 
 ### Donut smash!
@@ -176,6 +175,7 @@ jimmy b: “i figured!”**
 
 
 ### 我会确保他拿到三冠王
+
 [I'll make sure he gets it. ](https://www.tumblr.com/cementcornfield/771416184424890368/what-its-like-to-see-jamarr-be-on-the-cusp-of?source=share)
 
 
@@ -278,6 +278,8 @@ jimmy b: “i figured!”**
   <img src="https://github.com/user-attachments/assets/c68d4037-c61a-450e-b3ef-aee8fc5beaaa" width="48%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
   <img src="ttps://github.com/user-attachments/assets/f59daee2-96b9-4b14-a0f7-da0af24ae6da" width="48%" alt="蔡斯在cfb决赛">
 </div>
+
+![Image](https://github.com/user-attachments/assets/f847df78-4e99-46ef-8d70-403dbd12accb)
 ![Image](https://github.com/user-attachments/assets/967533c1-8de2-48b5-8f78-43c2b7ba506e)
 ![Image](https://github.com/user-attachments/assets/e38132ff-a947-4c70-bcc7-ed8992d81b59)
 ![Image](https://github.com/user-attachments/assets/c68d4037-c61a-450e-b3ef-aee8fc5beaaa)
@@ -293,14 +295,14 @@ jimmy b: “i figured!”**
 1
 <img width="1088" height="536" alt="Image" src="https://github.com/user-attachments/assets/b9c0dd8e-0aa5-4f15-8770-cfeb37cc62dc" />
 2
-
+<img width="724" height="481" alt="Image" src="https://github.com/user-attachments/assets/ca3371fc-f3a6-4ce5-bb2e-ce6f90a7ec5d" />
 3
-![Image](https://github.com/user-attachments/assets/6b81f2b4-c00c-4313-82ab-9073811459a3)
+
 4
 <img width="1024" height="743" alt="Image" src="https://github.com/user-attachments/assets/0d91bb01-a21e-4019-9948-220ee232dd12" />
 
 5
-![Image](https://github.com/user-attachments/assets/f847df78-4e99-46ef-8d70-403dbd12accb)
+
 
 
 最后，让全世界祝福菠菜早日拿戒指：
