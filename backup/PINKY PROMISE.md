@@ -115,12 +115,22 @@ jimmy b: “i figured!”**
 
 ### Donut smash!
 24赛季，第周的比赛刚好是菠萝的生日。在客场险胜达拉斯牛仔队后，让我们一起欢迎名场面：甜甜圈糊脸
+<div align="center">
+  <img src="https://github.com/user-attachments/assets/5e4daded-a6d1-4444-85fd-9a23cd3f43a0" width="99%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
+  <img src="https://github.com/user-attachments/assets/e98086ec-14e4-478b-85d9-450cd80fe1ba" width="99%" alt="蔡斯在cfb决赛">
+</div>
+<div align="center">
+  <img src="https://github.com/user-attachments/assets/5e4daded-a6d1-4444-85fd-9a23cd3f43a0" width="99%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
+  <img src="https://github.com/user-attachments/assets/46dbfc5f-4d3c-4f8e-b7ad-55b267cae55a" width="99%" alt="蔡斯在cfb决赛">
+</div>
 
 ![Image](https://github.com/user-attachments/assets/46dbfc5f-4d3c-4f8e-b7ad-55b267cae55a)
 ![Image](https://github.com/user-attachments/assets/8d951b66-4236-45f3-9ae3-732f630bb10c)
 ![Image](https://github.com/user-attachments/assets/5e4daded-a6d1-4444-85fd-9a23cd3f43a0)
 ![Image](https://github.com/user-attachments/assets/e98086ec-14e4-478b-85d9-450cd80fe1ba)
+
 网飞纪录片角度：
+
 ![Image](https://github.com/user-attachments/assets/cfdc2c40-a592-41e3-a5b4-b0673c076b68)
 ![Image](https://github.com/user-attachments/assets/770db36a-3143-4919-b414-a7f69355bb01)
 ![Image](https://github.com/user-attachments/assets/88d5098d-9b87-40fe-bc9a-52a4188cf34d)
@@ -129,6 +139,7 @@ jimmy b: “i figured!”**
 
 <img width="1903" height="1050" alt="Image" src="https://github.com/user-attachments/assets/33071406-dddb-4353-bdef-fe3f06c8a11e" />
 ![Image](https://github.com/user-attachments/assets/255bf5b7-0665-48d1-b1f5-074c472fe8bd)
+
 别忘了这个拥抱
 
 
@@ -160,14 +171,12 @@ jimmy b: “i figured!”**
 两个人从LSU开始就有了专属的庆祝动作：拉小拇指。这个动作多亲密不需要多说了吧！
 ![Image](https://github.com/user-attachments/assets/7ecbf7b2-1973-4c3f-8da1-7aec7993cc95)
 其实基本每次大码数接球或者达阵下场之后都会做，但基本要在球迷拍的小视频里才能看到，标准模板就是菠萝在边线伸出手等蔡斯自动靠过来，或者蔡斯伸出手，等菠萝靠近自动完成拉钩。
+<img src="[图片链接](https://github.com/user-attachments/assets/e2839e40-d347-4ae0-8721-4a847abc41db))" width="150%">
 
-
+![Image](https://github.com/user-attachments/assets/e2839e40-d347-4ae0-8721-4a847abc41db)
 ![Image](https://github.com/user-attachments/assets/fee2d963-7c02-4ff3-9668-6c4103b264a5)
 ![Image](https://github.com/user-attachments/assets/25d0dce9-4c98-4162-b648-68e9b8f5db05)
 ![Image](https://github.com/user-attachments/assets/a5eaa35a-026b-4966-a074-e0cb9a6f5de5)
-
-![Image](https://github.com/user-attachments/assets/e2839e40-d347-4ae0-8721-4a847abc41db)
-
 ![Image](https://github.com/user-attachments/assets/3516f5ed-5479-4a26-90eb-18e26fba1041)
 ![Image](https://github.com/user-attachments/assets/72d68dc0-6876-4bc0-b5aa-643531c5e616)
 ![Image](https://github.com/user-attachments/assets/a6c432c8-cd5a-44ea-bbfb-8b35c6e224a4)
