@@ -65,6 +65,8 @@ jimmy b: “i figured!”**
 由于蔡斯一年没有比赛，有不少人认为他一年前的数据已经难以作为参考。同时，由于2020赛季有几名优秀的外接手冒头，让外接手的位置竞争更加激烈。手握第5签位的猛虎也面临着难题：应该选他们迫切需要改善的进攻锋线位置的球员，还是选择其他位置？此时猛虎队中已经有两名优秀的外接手，所以
 </details>
 
+[joe'marr bengals reunion — a comprehensive timeline]https://www.tumblr.com/ziyechs/783295341223133184/joemarr-bengals-reunion-a-somewhat?source=share)
+
 
 ### 你能把房子卖给我，让我住他旁边吗？
 [第五名被猛虎选中之后，蔡斯去菠萝住的那条街挨家挨户敲门，问有没有人愿意把房子卖给他，让他能住在菠萝隔壁。](https://nypost.com/2022/02/11/jamarr-chase-went-to-wild-lengths-to-live-near-bengals-teammate-joe-burrow/)
@@ -90,10 +92,18 @@ jimmy b: “i figured!”**
 
 ## nfl时期
 
-**2021赛季**正式开始前，蔡斯在季前赛的表现与他的选秀名次并不匹配，掉球次数比接球次数还多。赛季前的记者会上，菠萝被问道他对于蔡斯季前赛表现的看法，菠萝坚定的表示：我不会担心，我知道他的能力。随后，在赛季正式开始后的第一场比赛中，蔡斯在7次传球中5次接球拿到101码1个达阵，狠狠打了喷子的脸lol。菠萝在赛后的记者会上调侃蔡斯“差点以为他不会接球了”。此事cbs亦有记载，内含记者会pinky shake一枚。
+**2021赛季**正式开始前，蔡斯在季前赛的表现与他的选秀名次并不匹配，掉球次数比接球次数还多。赛季前的记者会上，菠萝被问道他对于蔡斯季前赛表现的看法，菠萝坚定的表示：我不会担心，我知道他的能力。随后，在赛季正式开始后的第一场比赛中，蔡斯在7次传球中5次接球拿到101码1个达阵，狠狠打了喷子的脸lol。
+
+蔡斯达阵后，菠萝冲向蔡斯拥抱他
+
+![Image](https://github.com/user-attachments/assets/5b3a9315-95bf-44c1-9329-68a21d737c2f)
+<img width="724" height="481" alt="Image" src="https://github.com/user-attachments/assets/ca3371fc-f3a6-4ce5-bb2e-ce6f90a7ec5d" />
+
+菠萝在赛后的记者会上调侃蔡斯“差点以为他不会接球了”。此事cbs亦有记载，内含记者会pinky shake一枚。
 [更多详见](https://www.tumblr.com/cementcornfield/756551591985856512/a-retrospective-on-jamarrs-rough-rookie?source=share)
 
-### AFC冠军
+
+### AFC冠军赛
 
 21赛季，第一年在nfl合体的菠菜势不可挡，常规赛10-7，获得分区第一，季后赛一路杀进AFC决赛。AFC决赛一度3-21落后，下半场绝地逆转，加时击败酋长，加冕AFC冠军。
 
@@ -104,6 +114,7 @@ jimmy b: “i figured!”**
 
 >**So when they went to the super bowl, Ja'Marr Chase reached out to me one week before the super bowl and said "Hey, I wanna get Joe diamond grills for the super bowl. He promised us that when we won the national championship he'd get a gold grill, but here we are in the super bowl and I want to get him a gift, I want to get him a diamond grill."**
 *他们打进超级碗的时候，蔡斯在超级碗前一周联系了我，说：嘿，我想给乔弄个牙钻。他之前（大学时候）答应我，我们赢了全国冠军，他会送我一副金牙套。现在我们进超级碗了，我也想送他个礼物，我想送他个镶钻牙套。’”*
+[来源](https://www.tumblr.com/cementcornfield/802007525392367616/so-when-they-went-to-the-super-bowl-jamarr-chase?source=share)
 
 最后虽然超级碗惜败，蔡斯应该还是送了菠萝牙钻
 
@@ -123,6 +134,11 @@ jimmy b: “i figured!”**
 ![Image](https://github.com/user-attachments/assets/8fb5d5cd-1d21-4150-8649-4a78af60bb54)
 
 
+### That's all you baby
+
+![Image](https://github.com/user-attachments/assets/5b3a9315-95bf-44c1-9329-68a21d737c2f)
+<img width="724" height="481" alt="Image" src="https://github.com/user-attachments/assets/ca3371fc-f3a6-4ce5-bb2e-ce6f90a7ec5d" />
+
 
 ### Donut smash!
 24赛季，猛虎第14周的比赛刚好是菠萝的生日。在客场险胜达拉斯牛仔队后，让我们一起欢迎名场面：甜甜圈糊脸
@@ -136,11 +152,6 @@ jimmy b: “i figured!”**
   <img src="https://github.com/user-attachments/assets/8d951b66-4236-45f3-9ae3-732f630bb10c" width="48%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
   <img src="https://github.com/user-attachments/assets/46dbfc5f-4d3c-4f8e-b7ad-55b267cae55a" width="48%" alt="蔡斯在cfb决赛">
 </div>
-
-![Image](https://github.com/user-attachments/assets/46dbfc5f-4d3c-4f8e-b7ad-55b267cae55a)
-![Image](https://github.com/user-attachments/assets/8d951b66-4236-45f3-9ae3-732f630bb10c)
-![Image](https://github.com/user-attachments/assets/5e4daded-a6d1-4444-85fd-9a23cd3f43a0)
-![Image](https://github.com/user-attachments/assets/e98086ec-14e4-478b-85d9-450cd80fe1ba)
 
 网飞纪录片角度：
 
@@ -158,20 +169,30 @@ jimmy b: “i figured!”**
 
 
 ### We locked eyes
+
+24赛季对阵野马的比赛
+
 ![Image](https://github.com/user-attachments/assets/cd1c6846-802b-49c2-bdd3-f7821cb85fc4)
+
+
+### 我会确保他拿到三冠王
+[I'll make sure he gets it. ](https://www.tumblr.com/cementcornfield/771416184424890368/what-its-like-to-see-jamarr-be-on-the-cusp-of?source=share)
 
 
 
 ### 蔡斯会续约吗？
 
 ![Image](https://github.com/user-attachments/assets/0919a7d6-e190-4344-9342-dc4bed0fa997)
+
 续约后的拥抱
+
 ![Image](https://github.com/user-attachments/assets/b637769a-5e29-46ff-a1ce-3d0341093e9b)
 
 >**-Joe said yesterday your two careers are always gonna be tied forever, do you agree with that and what's your view of that?
 -Nah, it's a fact. I can say I could agree with that. Especially since we've been together what —— I'm starting to lose count now —— like six years now? Seven years now? So we're only going to get better from here....**
 *-乔昨天说，你们两个人的职业生涯会永远紧密相连，你同意这种说法吗？你有什么想法？
 -嗯，这是事实。我当然同意他。特别是考虑到我们已经在一起待了——我有时候都记不清了——六年了吧？还是七年了？所以，我们只会越来越好。”*
+[250102](https://www.tumblr.com/cementcornfield/771512761800966144/joe-said-yesterday-your-two-careers-are-always?source=share)
 
 
 
@@ -189,6 +210,7 @@ jimmy b: “i figured!”**
 
 
 ### 训练营
+
 <div align="center">
   <img src="https://github.com/user-attachments/assets/00a00ba3-08b6-42ad-8e09-1ba9e7659e7b" width="48%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
   <img src="https://github.com/user-attachments/assets/63ac1d94-aaed-4961-acef-56545ce8f503" width="48%" alt="蔡斯在cfb决赛">
@@ -196,6 +218,8 @@ jimmy b: “i figured!”**
 
 
 ### 你们之间的关系就像婚姻一样亲密
+
+[How has the marriage evolved over the years?](https://www.tumblr.com/cementcornfield/794704215648976896/how-has-the-marriage-evolved-over-the?source=share)
 
 
 
@@ -213,7 +237,6 @@ jimmy b: “i figured!”**
 ![Image](https://github.com/user-attachments/assets/7ecbf7b2-1973-4c3f-8da1-7aec7993cc95)
 其实基本每次大码数接球或者达阵下场之后都会做，但基本要在球迷拍的小视频里才能看到，标准模板就是菠萝在边线伸出手等蔡斯自动靠过来，或者蔡斯伸出手，等菠萝靠近自动完成拉钩。
   <img src="https://github.com/user-attachments/assets/e2839e40-d347-4ae0-8721-4a847abc41db" width="98%" alt="蔡斯在cfb决赛">
-![Image](https://github.com/user-attachments/assets/e2839e40-d347-4ae0-8721-4a847abc41db)
 ![Image](https://github.com/user-attachments/assets/fee2d963-7c02-4ff3-9668-6c4103b264a5)
 ![Image](https://github.com/user-attachments/assets/25d0dce9-4c98-4162-b648-68e9b8f5db05)
 ![Image](https://github.com/user-attachments/assets/a5eaa35a-026b-4966-a074-e0cb9a6f5de5)
@@ -229,11 +252,13 @@ jimmy b: “i figured!”**
 
 偶尔，会在媒体前秀一下
 一次是在他们第一个赛季战胜热门强队酋长，拿到分区冠军比赛后的媒体会
+
 ![Image](https://github.com/user-attachments/assets/3a2f42a0-41ef-4cc2-9689-a3a146eeea75)
 
 一次是在蔡斯拿到最佳进攻组新秀
+
 ![Image](https://github.com/user-attachments/assets/72d68dc0-6876-4bc0-b5aa-643531c5e616)
-![Image](https://github.com/user-attachments/assets/36d4bf69-14b3-40b7-bd4f-b93c47f34349)
+
 
 [Did we ever figure out if Ja'marr actually buy clothes for Joe?](https://www.tumblr.com/chasedeys/773982107622047744/new-to-joemarr-and-i-have-a-question-did-we-ever?source=share)
 
@@ -244,6 +269,15 @@ jimmy b: “i figured!”**
 
 
 ![Image](https://github.com/user-attachments/assets/56c46404-44b8-4b32-825d-09211833c742)
+<div align="center">
+  <img src="https://github.com/user-attachments/assets/967533c1-8de2-48b5-8f78-43c2b7ba506e" width="48%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
+  <img src="https://github.com/user-attachments/assets/e38132ff-a947-4c70-bcc7-ed8992d81b59" width="48%" alt="蔡斯在cfb决赛">
+</div>
+
+<div align="center">
+  <img src="https://github.com/user-attachments/assets/c68d4037-c61a-450e-b3ef-aee8fc5beaaa" width="48%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
+  <img src="ttps://github.com/user-attachments/assets/f59daee2-96b9-4b14-a0f7-da0af24ae6da" width="48%" alt="蔡斯在cfb决赛">
+</div>
 ![Image](https://github.com/user-attachments/assets/967533c1-8de2-48b5-8f78-43c2b7ba506e)
 ![Image](https://github.com/user-attachments/assets/e38132ff-a947-4c70-bcc7-ed8992d81b59)
 ![Image](https://github.com/user-attachments/assets/c68d4037-c61a-450e-b3ef-aee8fc5beaaa)
@@ -251,6 +285,7 @@ jimmy b: “i figured!”**
 
 
 只要看到
+
 ![Image](https://github.com/user-attachments/assets/f604a947-f2b2-4865-9d23-8a12b76bb451)
 ![Image](https://github.com/user-attachments/assets/3c10d6da-8423-4ba3-b65a-a22e2d5c3d0c)
 ![Image](https://github.com/user-attachments/assets/a8f05d45-ee7b-48ee-814b-41b82568d482)
@@ -258,8 +293,7 @@ jimmy b: “i figured!”**
 1
 <img width="1088" height="536" alt="Image" src="https://github.com/user-attachments/assets/b9c0dd8e-0aa5-4f15-8770-cfeb37cc62dc" />
 2
-![Image](https://github.com/user-attachments/assets/5b3a9315-95bf-44c1-9329-68a21d737c2f)
-<img width="724" height="481" alt="Image" src="https://github.com/user-attachments/assets/ca3371fc-f3a6-4ce5-bb2e-ce6f90a7ec5d" />
+
 3
 ![Image](https://github.com/user-attachments/assets/6b81f2b4-c00c-4313-82ab-9073811459a3)
 4
@@ -270,5 +304,6 @@ jimmy b: “i figured!”**
 
 
 最后，让全世界祝福菠菜早日拿戒指：
+
 ![Image](https://github.com/user-attachments/assets/b9a3eb29-3b1f-4074-b4a5-17bc6e2b86b8)
 
