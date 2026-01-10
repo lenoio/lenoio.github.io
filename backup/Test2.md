@@ -11,6 +11,23 @@
   </video>
 </div>
 
+
+<div align="center">
+  <video src="https://www.bilibili.com/video/BV1YXB5BoEyg" 
+    controls="controls" 
+    width="100%" 
+    poster="可选：封面图链接">
+  </video>
+</div>
+
+<div align="center">
+  <video src="https://github.com/lenoio/lenoio.github.io/releases/download/untagged-2f210e6fbc8ce774e601/brunch.with.the.in-laws.1.mp4" 
+    controls="controls" 
+    width="100%" 
+    poster="可选：封面图链接">
+  </video>
+</div>
+
 https://github.com/lenoio/lenoio.github.io/releases/download/untagged-2f210e6fbc8ce774e601/brunch.with.the.in-laws.1.mp4
 
 ![Image](https://github.com/user-attachments/assets/cfdc2c40-a592-41e3-a5b4-b0673c076b68)
