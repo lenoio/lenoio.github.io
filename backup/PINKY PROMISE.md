@@ -143,13 +143,13 @@ jimmy b: “i figured!”**
 24赛季，猛虎第14周的比赛刚好是菠萝的生日。在客场险胜达拉斯牛仔队后，让我们一起欢迎名场面：甜甜圈糊脸
 
 <div align="center">
-  <img src="https://github.com/user-attachments/assets/5e4daded-a6d1-4444-85fd-9a23cd3f43a0" width="48%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
-  <img src="https://github.com/user-attachments/assets/e98086ec-14e4-478b-85d9-450cd80fe1ba" width="48%" alt="蔡斯在cfb决赛">
+  <img src="https://github.com/user-attachments/assets/5e4daded-a6d1-4444-85fd-9a23cd3f43a0" width="48%" alt="donut smash1">
+  <img src="https://github.com/user-attachments/assets/e98086ec-14e4-478b-85d9-450cd80fe1ba" width="48%" alt="donut smash2">
 </div>
 
 <div align="center">
-  <img src="https://github.com/user-attachments/assets/8d951b66-4236-45f3-9ae3-732f630bb10c" width="48%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
-  <img src="https://github.com/user-attachments/assets/46dbfc5f-4d3c-4f8e-b7ad-55b267cae55a" width="48%" alt="蔡斯在cfb决赛">
+  <img src="https://github.com/user-attachments/assets/8d951b66-4236-45f3-9ae3-732f630bb10c" width="48%" alt="donut smash3">
+  <img src="https://github.com/user-attachments/assets/46dbfc5f-4d3c-4f8e-b7ad-55b267cae55a" width="48%" alt="donut smash4">
 </div>
 
 网飞纪录片角度：
@@ -219,11 +219,25 @@ jimmy b: “i figured!”**
 
 ### 你们之间的关系就像婚姻一样亲密
 
+>**-I look at you guys like you have this football marriage. You met in college, moved to the same city, you work for the same company, parents get along. How has the marriage evolved over the years?
+-There's certainly probably less words exchanged on the day to day now. Just cuz we understand each other. You know when you're....just like a husband and wife, once you understand each other and you're comfortable with each other, you don't necessarily have to...what's understood doesn't need to be spoken...and I would say we have that relationship. We still have intellectual conversations about football and different looks on the day to day depending on, you know, the play that's in or the look that we expect in the defense that we're playing. But the efficiency of communication's so great now that there's not a lot that needs to be said. We've seen all the looks, we've run all the routes, we've thrown all the...we've had all the reps. So, you can just recall something quickly like, hey you remember when we did it like that? Do it like that. Like boom, we got it.
+-One part of a marriage - trust me - do you guys fight? You and Ja'Marr?
+-Have we ever fought....um...we certainly have been frustrated with each other. Do we verbalize it? Not often. Typically, if that happens, one of us knows that either we didn't play the play the way we wanted to or I didn't throw it to him when I should have. And usually it's just, one of us is really mad, and the other of us is frustrated that he's mad. And then we see the clip and we're like ah, my bad bro. And he's like, yeah, or I'm like, yeah. We gotta be better. And that's about it. **
+-I mean, I take it back. It's not like a marriage at all. This is way better than any marriage. 
+*-在我看来，你们俩（菠萝和蔡斯）就像是拥有了一段橄榄球婚姻。你们在大学相遇，搬到了同一座城市，为同一家公司（球队）工作，甚至双方父母都相处得很好。这些年来，你们这种婚姻关系有什么演变吗？
+-现在的日常交流肯定变少了。因为我们太懂对方了。你知道，就像那种老夫老妻，一旦你们互相理解、相处得很舒服了，就没必要非得……那种尽在不言中的感觉，你知道吧？我觉得我们就是这种关系。我们每天还是会聊足球，聊聊战术细节，或者针对不同的防守阵型讨论不同的路线跑法。但现在的沟通效率太高了，根本不需要多废话。所有的防守我们都见过，所有的路线都跑过，所有的传球都……该练的都练烂了。所以，只要快速回想一下，比如：“嘿，记得咱们上次那样搞吗？就那样弄。” 然后嘭地一下，我们就搞定了。
+-作为婚姻的一部分——相信我——吵架，你们有过吗？你和贾马尔？
+-我们吵过架吗……嗯……我们肯定互相闹过情绪。会直接发泄出来吗？很少。发生这种情况的时候，一般我们自己心里都清楚，要么是他没跑好路线，要么是我该传的时候没传给他。通常情况就是，一个人真的很火大，另一个人则因为对方在生气而感到生气。然后等我们回头看了比赛录像，就会说：“啊，我的锅，兄弟。” 对方就会说：“行吧”，或者我说：”行，下次注意。“差不多就是这样。
+-我收回刚才的话。这根本不像婚姻。这可比婚姻顺心多了。*
+
 [How has the marriage evolved over the years?](https://www.tumblr.com/cementcornfield/794704215648976896/how-has-the-marriage-evolved-over-the?source=share)
 
 
 
-### 
+### 采访对谁wink呢
+
+25赛季第二周，菠萝脚趾骨折。本来预计至少要三个月，基本等于赛季报销。但菠萝对自己时真狠，两个多月就在感恩节复出了，周四夜赛客场对阵分区老对手乌鸦，笑纳对面频频失误送大礼，乌鸦球迷到第四节几乎全被气提前走了。
+感恩节赛传统时赛后有吃火鸡的环节，欸怎么有人在采访时候挤眉弄眼的呢？
 
 [oh my joemarr you are so precious to me](https://www.tumblr.com/dominiks/801435074342141952/oh-my-joemarr-you-are-so-precious-to-me?source=share)
 [joe youre not subtle at all....](https://www.tumblr.com/dominiks/801436993845362688/joe-youre-not-subtle-at-all?source=share)
@@ -235,7 +249,9 @@ jimmy b: “i figured!”**
 
 两个人从LSU开始就有了专属的庆祝动作：拉小拇指。
 ![Image](https://github.com/user-attachments/assets/7ecbf7b2-1973-4c3f-8da1-7aec7993cc95)
+
 其实基本每次大码数接球或者达阵下场之后都会做，但基本要在球迷拍的小视频里才能看到，标准模板就是菠萝在边线伸出手等蔡斯自动靠过来，或者蔡斯伸出手，等菠萝靠近自动完成拉钩。
+
   <img src="https://github.com/user-attachments/assets/e2839e40-d347-4ae0-8721-4a847abc41db" width="98%" alt="蔡斯在cfb决赛">
 ![Image](https://github.com/user-attachments/assets/fee2d963-7c02-4ff3-9668-6c4103b264a5)
 ![Image](https://github.com/user-attachments/assets/25d0dce9-4c98-4162-b648-68e9b8f5db05)
@@ -276,12 +292,11 @@ jimmy b: “i figured!”**
 
 <div align="center">
   <img src="https://github.com/user-attachments/assets/c68d4037-c61a-450e-b3ef-aee8fc5beaaa" width="48%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
-  <img src="ttps://github.com/user-attachments/assets/f59daee2-96b9-4b14-a0f7-da0af24ae6da" width="48%" alt="蔡斯在cfb决赛">
+  <img src="https://github.com/user-attachments/assets/f59daee2-96b9-4b14-a0f7-da0af24ae6da" width="48%" alt="蔡斯在cfb决赛">
 </div>
 
 ![Image](https://github.com/user-attachments/assets/f847df78-4e99-46ef-8d70-403dbd12accb)
-![Image](https://github.com/user-attachments/assets/967533c1-8de2-48b5-8f78-43c2b7ba506e)
-![Image](https://github.com/user-attachments/assets/e38132ff-a947-4c70-bcc7-ed8992d81b59)
+
 ![Image](https://github.com/user-attachments/assets/c68d4037-c61a-450e-b3ef-aee8fc5beaaa)
 ![Image](https://github.com/user-attachments/assets/f59daee2-96b9-4b14-a0f7-da0af24ae6da)
 
