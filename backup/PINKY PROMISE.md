@@ -115,12 +115,12 @@ jimmy b: “i figured!”**
 ### Donut smash!
 24赛季，猛虎第14周的比赛刚好是菠萝的生日。在客场险胜达拉斯牛仔队后，让我们一起欢迎名场面：甜甜圈糊脸
 <div align="center">
-  <img src="https://github.com/user-attachments/assets/5e4daded-a6d1-4444-85fd-9a23cd3f43a0" width="99%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
-  <img src="https://github.com/user-attachments/assets/e98086ec-14e4-478b-85d9-450cd80fe1ba" width="99%" alt="蔡斯在cfb决赛">
+  <img src="https://github.com/user-attachments/assets/5e4daded-a6d1-4444-85fd-9a23cd3f43a0" width="50%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
+  <img src="https://github.com/user-attachments/assets/e98086ec-14e4-478b-85d9-450cd80fe1ba" width="59%" alt="蔡斯在cfb决赛">
 </div>
 <div align="center">
-  <img src="https://github.com/user-attachments/assets/5e4daded-a6d1-4444-85fd-9a23cd3f43a0" width="99%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
-  <img src="https://github.com/user-attachments/assets/46dbfc5f-4d3c-4f8e-b7ad-55b267cae55a" width="99%" alt="蔡斯在cfb决赛">
+  <img src="https://github.com/user-attachments/assets/8d951b66-4236-45f3-9ae3-732f630bb10c" width="50%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
+  <img src="https://github.com/user-attachments/assets/46dbfc5f-4d3c-4f8e-b7ad-55b267cae55a" width="50%" alt="蔡斯在cfb决赛">
 </div>
 
 ![Image](https://github.com/user-attachments/assets/46dbfc5f-4d3c-4f8e-b7ad-55b267cae55a)
@@ -161,26 +161,29 @@ jimmy b: “i figured!”**
 
 
 
-### 不，爸爸我要和乔在一起，我不会去任何其他队
+### 我要和乔在一起，我不会去任何其他队
 
 >**—Final thing for you two guys and i appreciate your time. i think bengals fans want to know: should we feel confident that joe and ja’marr are going to be nfl teammates for a long, long time?
 — well, i definitely want them to be together and i think ja’marr does too, you know, because i was talking to him one time and i was telling him: ”you know, this is the nfl and this is a business also. so, you know, you might have to go find another quarterback”. and he was like: “no, dad, i’m staying with joe. i’m not going nowhere else.“**
 *—感谢你们接受采访，最后一个问题。我想猛虎队（Bengals）的球迷们想知道：我们是否应该相信乔（Joe Burrow）和贾马尔（Ja’Marr Chase）会很长、很长一段时间都是 NFL 的队友？
 — 嗯，我当然希望他们能一直在一起，我觉得贾马尔也是这么想的。有一次我跟他聊天，我说："你知道，这是 NFL，是商业联盟。所以，你有可能会离开，去其他四分卫打球。"结果他说："不，爸爸，我要和乔在一起，我不会去任何其他队。"*
 
-记者也问过菠萝类似的问题
+记者也问过菠萝类似的问题：
 
 ![Image](https://github.com/user-attachments/assets/b96c4a78-a63d-41df-a0fc-25e7d3436d13)
->**
+>*乔对于记者“你想过不和贾马尔蔡斯打球的可能吗？”的部分回答“我没有那种经历，我也不想去考虑这种可能。”*
+
 
 <hr>
 
 ## 拉钩，上吊，一百年不许变 
 
-两个人从LSU开始就有了专属的庆祝动作：拉小拇指。这个动作多亲密不需要多说了吧！
+两个人从LSU开始就有了专属的庆祝动作：拉小拇指。
 ![Image](https://github.com/user-attachments/assets/7ecbf7b2-1973-4c3f-8da1-7aec7993cc95)
 其实基本每次大码数接球或者达阵下场之后都会做，但基本要在球迷拍的小视频里才能看到，标准模板就是菠萝在边线伸出手等蔡斯自动靠过来，或者蔡斯伸出手，等菠萝靠近自动完成拉钩。
-<img src="[图片链接](https://github.com/user-attachments/assets/e2839e40-d347-4ae0-8721-4a847abc41db))" width="150%">
+  <img src="https://github.com/user-attachments/assets/e2839e40-d347-4ae0-8721-4a847abc41db" width="98%" alt="蔡斯在cfb决赛">
+
+<img src="[图片链接](https://github.com/user-attachments/assets/e2839e40-d347-4ae0-8721-4a847abc41db)" width="150%">
 
 ![Image](https://github.com/user-attachments/assets/e2839e40-d347-4ae0-8721-4a847abc41db)
 ![Image](https://github.com/user-attachments/assets/fee2d963-7c02-4ff3-9668-6c4103b264a5)
