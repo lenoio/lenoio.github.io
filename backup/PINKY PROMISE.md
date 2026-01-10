@@ -191,7 +191,7 @@ jimmy b: “i figured!”**
 >**-Joe said yesterday your two careers are always gonna be tied forever, do you agree with that and what's your view of that?
 -Nah, it's a fact. I can say I could agree with that. Especially since we've been together what —— I'm starting to lose count now —— like six years now? Seven years now? So we're only going to get better from here....**
 *-乔昨天说，你们两个人的职业生涯会永远紧密相连，你同意这种说法吗？你有什么想法？
--嗯，这是事实。我当然同意他。特别是考虑到我们已经在一起待了——我有时候都记不清了——六年了吧？还是七年了？所以，我们只会越来越好。”*
+-嗯，这是事实。我当然同意他。特别是考虑到我们已经在一起——我有时候都数不清了——快六年了吧？还是七年了？所以，我们只会越来越好。”*
 [250102](https://www.tumblr.com/cementcornfield/771512761800966144/joe-said-yesterday-your-two-careers-are-always?source=share)
 
 
@@ -252,12 +252,18 @@ jimmy b: “i figured!”**
 
 其实基本每次大码数接球或者达阵下场之后都会做，但基本要在球迷拍的小视频里才能看到，标准模板就是菠萝在边线伸出手等蔡斯自动靠过来，或者蔡斯伸出手，等菠萝靠近自动完成拉钩。
 
-  <img src="https://github.com/user-attachments/assets/e2839e40-d347-4ae0-8721-4a847abc41db" width="98%" alt="蔡斯在cfb决赛">
+  <img src="https://github.com/user-attachments/assets/e2839e40-d347-4ae0-8721-4a847abc41db" width="98%" alt="pinky shake">
+
 ![Image](https://github.com/user-attachments/assets/fee2d963-7c02-4ff3-9668-6c4103b264a5)
+
 ![Image](https://github.com/user-attachments/assets/25d0dce9-4c98-4162-b648-68e9b8f5db05)
+
 ![Image](https://github.com/user-attachments/assets/a5eaa35a-026b-4966-a074-e0cb9a6f5de5)
+
 ![Image](https://github.com/user-attachments/assets/3516f5ed-5479-4a26-90eb-18e26fba1041)
+
 ![Image](https://github.com/user-attachments/assets/a6c432c8-cd5a-44ea-bbfb-8b35c6e224a4)
+
 ![Image](https://github.com/user-attachments/assets/d46c2f88-768b-4dbc-b41b-79b58a21bfa1)
 
 有时候，也会出现菠萝穿过半个球场找蔡斯拉钩的画面
@@ -297,8 +303,6 @@ jimmy b: “i figured!”**
 
 ![Image](https://github.com/user-attachments/assets/f847df78-4e99-46ef-8d70-403dbd12accb)
 
-![Image](https://github.com/user-attachments/assets/c68d4037-c61a-450e-b3ef-aee8fc5beaaa)
-![Image](https://github.com/user-attachments/assets/f59daee2-96b9-4b14-a0f7-da0af24ae6da)
 
 
 只要看到
@@ -315,8 +319,6 @@ jimmy b: “i figured!”**
 
 4
 <img width="1024" height="743" alt="Image" src="https://github.com/user-attachments/assets/0d91bb01-a21e-4019-9948-220ee232dd12" />
-
-5
 
 
 
