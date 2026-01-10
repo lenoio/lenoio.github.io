@@ -66,6 +66,7 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 
 
 <hr>
+
 ## nfl时期
 2021赛季正式开始前，蔡斯在季前赛的表现与他的选秀名次并不匹配，掉球次数比接球次数还多。赛季前的记者会上，菠萝被问道他对于蔡斯季前赛表现的看法，菠萝坚定的表示：我不会担心，我知道他的能力。随后，在赛季正式开始后的第一场比赛中，蔡斯在7次传球中5次接球拿到101码1个达阵，狠狠打了喷子的脸lol。菠萝在赛后的记者会上调侃蔡斯“差点以为他不会接球了”。此事cbs亦有记载，内含记者会pinky shake一枚。
 [更多详见](https://www.tumblr.com/cementcornfield/756551591985856512/a-retrospective-on-jamarrs-rough-rookie?source=share)
@@ -96,13 +97,23 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 
 
 <hr>
+
 ## 拉钩，上吊，一百年不许变，我们的专属庆祝：pinky shake 
 两个人从LSU开始就有了专属的庆祝动作：拉小拇指。这个动作多亲密不需要多说了吧！
 ![Image](https://github.com/user-attachments/assets/7ecbf7b2-1973-4c3f-8da1-7aec7993cc95)
 其实基本每次大码数接球或者达阵下场之后都会做，但基本要在球迷拍的小视频里才能看到，标准模板就是菠萝在边线伸出手等蔡斯自动靠过来，或者蔡斯伸出手，等菠萝靠近自动完成拉钩。
-![Image](https://github.com/user-attachments/assets/0db47211-fed8-4e66-babc-e4f8ab3780db)
-![Image](https://github.com/user-attachments/assets/ac53202a-a73d-4e88-8311-caf4d3aeee22)
-![Image](https://github.com/user-attachments/assets/6fdd7782-440e-4d43-aeff-d73fe8798d57)
+
+![Image](https://github.com/user-attachments/assets/7bdc2b6e-727b-427e-b936-df8bb8081f5a)
+![Image](https://github.com/user-attachments/assets/fee2d963-7c02-4ff3-9668-6c4103b264a5)
+![Image](https://github.com/user-attachments/assets/25d0dce9-4c98-4162-b648-68e9b8f5db05)
+
+偶尔，也会出现菠萝穿过半个球场找蔡斯拉钩的时候
+
+![Image](https://github.com/user-attachments/assets/5e846ad7-edcf-495e-a12a-7d16bbad3645)
+![Image](https://github.com/user-attachments/assets/66733129-f942-492f-9aef-96a6c6101211)
+![Image](https://github.com/user-attachments/assets/64796e12-e26a-4d1d-880b-8e5b2af49318)
+
+
 
 [Did we ever figure out if Ja'marr actually buy clothes for Joe?](https://www.tumblr.com/chasedeys/773982107622047744/new-to-joemarr-and-i-have-a-question-did-we-ever?source=share)
 
