@@ -32,9 +32,12 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 稍后，毫不知情的菠萝爸爸问菠萝比赛用球在哪，他想把球收藏起来的时候，菠萝告爸爸”我把它给了贾马尔“。菠萝的爸爸问他”啥？ 给了贾马尔？ 你有没有想过老爸会想要这个球吗？”然后菠萝说，“爸爸，贾马尔那天接了 150 码，他应得到那个球”。 [此事由受害人菠萝爸亲述：有了对象忘了爹啊！](https://www.tumblr.com/ziyechs/796829898673111040/game-ball-saga-pt-3848393929-jimmy-burrow-and?source=share)
 [关于这个球怎么到蔡斯手中更详细的考据、视频请参考](https://www.tumblr.com/ziyechs/796829530107117568/follow-up-to-this-excellent-post-by?source=share)
 
+
+
 <hr>
 
 ## 选秀
+
 2019赛季结束，戴着历史级大学橄榄球表现光环的乔菠萝在2020nfl选秀中，毫不意外的被辛辛那提猛虎队用状元签选中。众所周知，能拿状元签的都是上赛季实（倒）力（一）队伍。
 
 2020赛季，在猛虎的第一年对乔菠萝并不理想，在第九周的比赛中，乔菠萝在一次撞击中左膝acl+mcl，赛季报销。同时在这一年，还在大学的蔡斯由于种种原因选择不参与本赛季比赛，直接参加2021选秀。
@@ -68,6 +71,7 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 <hr>
 
 ## nfl时期
+
 2021赛季正式开始前，蔡斯在季前赛的表现与他的选秀名次并不匹配，掉球次数比接球次数还多。赛季前的记者会上，菠萝被问道他对于蔡斯季前赛表现的看法，菠萝坚定的表示：我不会担心，我知道他的能力。随后，在赛季正式开始后的第一场比赛中，蔡斯在7次传球中5次接球拿到101码1个达阵，狠狠打了喷子的脸lol。菠萝在赛后的记者会上调侃蔡斯“差点以为他不会接球了”。此事cbs亦有记载，内含记者会pinky shake一枚。
 [更多详见](https://www.tumblr.com/cementcornfield/756551591985856512/a-retrospective-on-jamarrs-rough-rookie?source=share)
 
@@ -99,15 +103,18 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 <hr>
 
 ## 拉钩，上吊，一百年不许变，我们的专属庆祝：pinky shake 
+
 两个人从LSU开始就有了专属的庆祝动作：拉小拇指。这个动作多亲密不需要多说了吧！
 ![Image](https://github.com/user-attachments/assets/7ecbf7b2-1973-4c3f-8da1-7aec7993cc95)
 其实基本每次大码数接球或者达阵下场之后都会做，但基本要在球迷拍的小视频里才能看到，标准模板就是菠萝在边线伸出手等蔡斯自动靠过来，或者蔡斯伸出手，等菠萝靠近自动完成拉钩。
 
-![Image](https://github.com/user-attachments/assets/7bdc2b6e-727b-427e-b936-df8bb8081f5a)
+
 ![Image](https://github.com/user-attachments/assets/fee2d963-7c02-4ff3-9668-6c4103b264a5)
 ![Image](https://github.com/user-attachments/assets/25d0dce9-4c98-4162-b648-68e9b8f5db05)
+![Image](https://github.com/user-attachments/assets/a5eaa35a-026b-4966-a074-e0cb9a6f5de5)
 
-偶尔，也会出现菠萝穿过半个球场找蔡斯拉钩的时候
+
+有时候，也会出现菠萝穿过半个球场找蔡斯拉钩的画面
 
 ![Image](https://github.com/user-attachments/assets/5e846ad7-edcf-495e-a12a-7d16bbad3645)
 ![Image](https://github.com/user-attachments/assets/66733129-f942-492f-9aef-96a6c6101211)
