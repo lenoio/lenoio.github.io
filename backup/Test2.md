@@ -2,6 +2,16 @@
 >引用
 23412
 
+<div align="center">
+  <video src="https://github.com/lenoio/lenoio.github.io/releases/download/untagged-2f210e6fbc8ce774e601/brunch.with.the.in-laws.1.mp4" 
+    controls="controls" 
+    width="100%" 
+    poster="可选：封面图链接">
+    您的浏览器不支持 HTML5 视频播放。
+  </video>
+</div>
+
+https://github.com/lenoio/lenoio.github.io/releases/download/untagged-2f210e6fbc8ce774e601/brunch.with.the.in-laws.1.mp4
 
 ![Image](https://github.com/user-attachments/assets/cfdc2c40-a592-41e3-a5b4-b0673c076b68)
 ![Image](https://github.com/user-attachments/assets/770db36a-3143-4919-b414-a7f69355bb01)
@@ -14,7 +24,6 @@
 
 ![Image](https://github.com/user-attachments/assets/0eb60d22-2560-4e15-8e5f-72849e9c7a91)
 
-<!-- Failed to upload "GIF_20251124_215113_550.gif" -->
 
 ![Image](https://github.com/user-attachments/assets/0db47211-fed8-4e66-babc-e4f8ab3780db)
 
