@@ -33,6 +33,7 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 [关于这个球怎么到蔡斯手中更详细的考据、视频请参考](https://www.tumblr.com/ziyechs/796829530107117568/follow-up-to-this-excellent-post-by?source=share)
 
 <hr>
+
 ## 选秀
 2019赛季结束，戴着历史级大学橄榄球表现光环的乔菠萝在2020nfl选秀中，毫不意外的被辛辛那提猛虎队用状元签选中。众所周知，能拿状元签的都是上赛季实（倒）力（一）队伍。
 
@@ -48,11 +49,10 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 [在被孟加拉虎选中之后，蔡斯就去菠萝住的那条街挨家挨户敲门，问有没有人愿意把房子卖给他，好让他能住在菠萝隔壁（非常正常的行为）。](https://nypost.com/2022/02/11/jamarr-chase-went-to-wild-lengths-to-live-near-bengals-teammate-joe-burrow/)
 翻译：
 *Ja’Marr Chase 真的、真的很想住在 Joe Burrow 附近。
-这位外接手和四分卫不仅是最好的朋友、大学时期的队友，现在还即将一起代表孟加拉虎出战 2022 年超级碗。
-所以，当辛辛那提在去年春天选中 Chase 之后，这位 LSU 出身的球员做了一件再合理不过的事——
-他想尽一切办法，搬到和 Burrow 同一条街上。
-于是他选择——挨家挨户敲门，直接开口买房。
-《The Athletic》孟加拉虎随队记者 Paul Dehner Jr. 本周在播客 《Hear That Podcast Growlin’》 里爆料说：
+这位外接手和四分卫不仅是最好的朋友、大学时期的队友，现在还即将一起代表猛虎出战 2022 年超级碗。
+所以，当猛虎在去年春天选中 Chase 之后，这位来自 LSU的球员做了一件再合理不过的事——他想尽一切办法，搬到和 Burrow 同一条街上。
+他选择，挨家挨户敲门，直接开口买房。
+《The Athletic》猛虎随队记者 Paul Dehner Jr. 本周在播客 《Hear That Podcast Growlin’》 里爆料说：
 “他直接跑到 Joe Burrow 住的那条街，一家一家的敲门，对每一户都说想买他们的房子。”
 “然后你猜怎么着？他真的买到了。有个人把房子卖给他了，所以现在他就住在 Joe Burrow 隔壁——就在那条小街上，他们现在简直像一整个幸福大家庭。”
 “他基本就是挨家挨户地说：‘你好，我是 Ja’Marr Chase。我很有钱，我想买你的房子。’
@@ -75,7 +75,7 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 2022赛季，猛虎客场对阵新奥尔良圣徒，菠萝和蔡斯LSU毕业后第一次回到路易斯安那打球。菠萝穿着蔡斯的2019cfb决赛时**穿过的比赛衣服**出现在球场……~~到底什么人会穿队友穿过的比赛服去队友老家啊？而且为什么菠萝会有蔡斯这件衣服啊？菠萝收藏了吗还是临时和蔡斯要的？哪种都很可疑好吗！~~
 <div align="center">
   <img src="https://github.com/user-attachments/assets/edacf462-e123-4254-8d0d-bb6a55f1597d" width="48%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
-  <img src="https://github.com/user-attachments/assets/400b2e20-80dd-4c9f-91ba-ecaa720f317c" width="48%" alt="蔡斯在cfb决赛">
+  <img src="https://github.com/user-attachments/assets/2041eceb-3cef-44fc-8497-12db7dd01259" width="48%" alt="蔡斯在cfb决赛">
 </div>
 
 
