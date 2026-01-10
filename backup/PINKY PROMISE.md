@@ -144,6 +144,11 @@ jimmy b: “i figured!”**
 ![Image](https://github.com/user-attachments/assets/25d0dce9-4c98-4162-b648-68e9b8f5db05)
 ![Image](https://github.com/user-attachments/assets/a5eaa35a-026b-4966-a074-e0cb9a6f5de5)
 
+![Image](https://github.com/user-attachments/assets/e2839e40-d347-4ae0-8721-4a847abc41db)
+
+![Image](https://github.com/user-attachments/assets/3516f5ed-5479-4a26-90eb-18e26fba1041)
+![Image](https://github.com/user-attachments/assets/72d68dc0-6876-4bc0-b5aa-643531c5e616)
+![Image](https://github.com/user-attachments/assets/a6c432c8-cd5a-44ea-bbfb-8b35c6e224a4)
 
 有时候，也会出现菠萝穿过半个球场找蔡斯拉钩的画面
 
@@ -162,7 +167,40 @@ jimmy b: “i figured!”**
 
 
 
+![Image](https://github.com/user-attachments/assets/cd1c6846-802b-49c2-bdd3-f7821cb85fc4)
+![Image](https://github.com/user-attachments/assets/b9a3eb29-3b1f-4074-b4a5-17bc6e2b86b8)
+![Image](https://github.com/user-attachments/assets/b96c4a78-a63d-41df-a0fc-25e7d3436d13)
+![Image](https://github.com/user-attachments/assets/2e348f29-0f77-458d-bc65-88eb6b9edd00)
+![Image](https://github.com/user-attachments/assets/0919a7d6-e190-4344-9342-dc4bed0fa997)
+![Image](https://github.com/user-attachments/assets/967533c1-8de2-48b5-8f78-43c2b7ba506e)
+![Image](https://github.com/user-attachments/assets/e38132ff-a947-4c70-bcc7-ed8992d81b59)
+![Image](https://github.com/user-attachments/assets/c68d4037-c61a-450e-b3ef-aee8fc5beaaa)
+![Image](https://github.com/user-attachments/assets/f59daee2-96b9-4b14-a0f7-da0af24ae6da)
+![Image](https://github.com/user-attachments/assets/f604a947-f2b2-4865-9d23-8a12b76bb451)
+![Image](https://github.com/user-attachments/assets/3c10d6da-8423-4ba3-b65a-a22e2d5c3d0c)
+![Image](https://github.com/user-attachments/assets/a8f05d45-ee7b-48ee-814b-41b82568d482)
+![Image](https://github.com/user-attachments/assets/56c46404-44b8-4b32-825d-09211833c742)
+![Image](https://github.com/user-attachments/assets/dd2ced7f-50bb-418b-a595-bf437b62e28c)
+![Image](https://github.com/user-attachments/assets/00a00ba3-08b6-42ad-8e09-1ba9e7659e7b)
+![Image](https://github.com/user-attachments/assets/63ac1d94-aaed-4961-acef-56545ce8f503)
+<img width="1088" height="536" alt="Image" src="https://github.com/user-attachments/assets/b9c0dd8e-0aa5-4f15-8770-cfeb37cc62dc" />
+![Image](https://github.com/user-attachments/assets/eac3e1ff-c033-4ffc-bebd-dab16916f9c4)
+![Image](https://github.com/user-attachments/assets/5b3a9315-95bf-44c1-9329-68a21d737c2f)
+<img width="724" height="481" alt="Image" src="https://github.com/user-attachments/assets/ca3371fc-f3a6-4ce5-bb2e-ce6f90a7ec5d" />
+![Image](https://github.com/user-attachments/assets/6b81f2b4-c00c-4313-82ab-9073811459a3)
+![Image](https://github.com/user-attachments/assets/8b130a60-2e64-4d81-ab96-d3fe61ea163b)
+<img width="1024" height="743" alt="Image" src="https://github.com/user-attachments/assets/0d91bb01-a21e-4019-9948-220ee232dd12" />
+![Image](https://github.com/user-attachments/assets/d46c2f88-768b-4dbc-b41b-79b58a21bfa1)
+![Image](https://github.com/user-attachments/assets/f847df78-4e99-46ef-8d70-403dbd12accb)
+<img width="1903" height="1050" alt="Image" src="https://github.com/user-attachments/assets/33071406-dddb-4353-bdef-fe3f06c8a11e" />
+![Image](https://github.com/user-attachments/assets/255bf5b7-0665-48d1-b1f5-074c472fe8bd)
+![Image](https://github.com/user-attachments/assets/bd0f8fa4-e105-4d08-8d5b-14fd71067604)
+![Image](https://github.com/user-attachments/assets/722cbc1a-60b3-4241-8dc6-c64d96700642)
+![Image](https://github.com/user-attachments/assets/b637769a-5e29-46ff-a1ce-3d0341093e9b)
+![Image](https://github.com/user-attachments/assets/36d4bf69-14b3-40b7-bd4f-b93c47f34349)
 
-
-
+![Image](https://github.com/user-attachments/assets/46dbfc5f-4d3c-4f8e-b7ad-55b267cae55a)
+![Image](https://github.com/user-attachments/assets/8d951b66-4236-45f3-9ae3-732f630bb10c)
+![Image](https://github.com/user-attachments/assets/5e4daded-a6d1-4444-85fd-9a23cd3f43a0)
+![Image](https://github.com/user-attachments/assets/e98086ec-14e4-478b-85d9-450cd80fe1ba)
 
