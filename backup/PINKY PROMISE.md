@@ -1,6 +1,6 @@
 
 
-# LSU时期
+## LSU时期
 
 2018年，在橄榄球名校OSU（俄亥俄州立大学，当时全国排名第5）竞争首发四分卫失败的乔菠萝收到了LSU的主教练的邀请，转学到了LSU（路易斯安那州立大学，当时全国排名25）。同年，蔡斯作为四星高中生（是的老美就是用这么中二的方式给高中毕业生天赋分级的，五星最高，全国每年评32个五星高中生）进入LSU。虽然同为历史悠久的橄榄球名校，但LSU前几年成绩并不突出，六年没进过前10。
 不过没关系，LSU即将组建一支被很多人心中的史上最强大学橄榄球球队。
@@ -33,7 +33,7 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 [关于这个球怎么到蔡斯手中更详细的考据、视频请参考](https://www.tumblr.com/ziyechs/796829530107117568/follow-up-to-this-excellent-post-by?source=share)
 
 <hr>
-# 选秀
+## 选秀
 2019赛季结束，戴着历史级大学橄榄球表现光环的乔菠萝在2020nfl选秀中，毫不意外的被辛辛那提猛虎队用状元签选中。众所周知，能拿状元签的都是上赛季实（倒）力（一）队伍。
 
 2020赛季，在猛虎的第一年对乔菠萝并不理想，在第九周的比赛中，乔菠萝在一次撞击中左膝acl+mcl，赛季报销。同时在这一年，还在大学的蔡斯由于种种原因选择不参与本赛季比赛，直接参加2021选秀。
@@ -66,7 +66,7 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 
 
 <hr>
-# nfl时期
+## nfl时期
 2021赛季正式开始前，蔡斯在季前赛的表现与他的选秀名次并不匹配，掉球次数比接球次数还多。赛季前的记者会上，菠萝被问道他对于蔡斯季前赛表现的看法，菠萝坚定的表示：我不会担心，我知道他的能力。随后，在赛季正式开始后的第一场比赛中，蔡斯在7次传球中5次接球拿到101码1个达阵，狠狠打了喷子的脸lol。菠萝在赛后的记者会上调侃蔡斯“差点以为他不会接球了”。此事cbs亦有记载，内含记者会pinky shake一枚。
 [更多详见](https://www.tumblr.com/cementcornfield/756551591985856512/a-retrospective-on-jamarrs-rough-rookie?source=share)
 
@@ -79,6 +79,30 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 </div>
 
 
+
+
+### Donut smash!
+24赛季，第周的比赛刚好是菠萝的生日。在客场险胜达拉斯牛仔队后，让我们一起欢迎名场面：甜甜圈糊脸
+![Image](https://github.com/user-attachments/assets/cfdc2c40-a592-41e3-a5b4-b0673c076b68)
+![Image](https://github.com/user-attachments/assets/770db36a-3143-4919-b414-a7f69355bb01)
+![Image](https://github.com/user-attachments/assets/88d5098d-9b87-40fe-bc9a-52a4188cf34d)
+![Image](https://github.com/user-attachments/assets/f87f033c-0e7e-4dbd-bfe7-7cab1df95898)
+![Image](https://github.com/user-attachments/assets/df75c84f-c7c5-43d1-9686-bb9bb6694631)
+
+
+
+
+
+
+
+<hr>
+## 拉钩，上吊，一百年不许变，我们的专属庆祝：pinky shake 
+两个人从LSU开始就有了专属的庆祝动作：拉小拇指。这个动作多亲密不需要多说了吧！
+![Image](https://github.com/user-attachments/assets/7ecbf7b2-1973-4c3f-8da1-7aec7993cc95)
+其实基本每次大码数接球或者达阵下场之后都会做，但基本要在球迷拍的小视频里才能看到，标准模板就是菠萝在边线伸出手等蔡斯自动靠过来，或者蔡斯伸出手，等菠萝靠近自动完成拉钩。
+![Image](https://github.com/user-attachments/assets/0db47211-fed8-4e66-babc-e4f8ab3780db)
+![Image](https://github.com/user-attachments/assets/ac53202a-a73d-4e88-8311-caf4d3aeee22)
+![Image](https://github.com/user-attachments/assets/6fdd7782-440e-4d43-aeff-d73fe8798d57)
 
 [Did we ever figure out if Ja'marr actually buy clothes for Joe?](https://www.tumblr.com/chasedeys/773982107622047744/new-to-joemarr-and-i-have-a-question-did-we-ever?source=share)
 
