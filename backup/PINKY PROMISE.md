@@ -32,7 +32,16 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 但是在那天晚上稍晚的视频里，球突然到了哭的稀里哗啦的蔡斯手里。
 ![Image](https://github.com/user-attachments/assets/2d03fe55-48b1-40d1-9c36-23773b5cba15)
 ![Image](https://github.com/user-attachments/assets/7d69a56a-db8c-47bb-ac18-13c7ea380847)
-稍后，毫不知情的菠萝爸爸问菠萝比赛用球在哪，他想把球收藏起来的时候，菠萝告爸爸”我把它给了贾马尔“。菠萝的爸爸问他”啥？ 给了贾马尔？ 你有没有想过老爸会想要这个球吗？”然后菠萝说，“爸爸，贾马尔那天接了 150 码，他应得到那个球”。 [此事由受害人菠萝爸亲述：有了对象忘了爹啊！](https://www.tumblr.com/ziyechs/796829898673111040/game-ball-saga-pt-3848393929-jimmy-burrow-and?source=share)
+
+稍后，毫不知情的菠萝爸爸问菠萝比赛用球在哪，他想把球收藏起来的时候
+>**jimmy burrow: “and that relationship between joe and ja’marr… i’ll give you another example: after the national championship game they snapped the ball, joe has the ball and later that night—because that ball’s pretty valuable, national championship ball—and i said: ‘hey, joe, where’s that ball, i wanna take it home with us and stuff’ and he said: ‘i gave it to ja’marr’. and i said: ‘you what? gave it to ja'marr? your dad might've liked that.’ and he said, ‘dad, ja'marr had like 150 passing yards that day or something, he deserves that ball’. so… that's just again how those two guys roll together.”
+jimmy chase: “yeah, i have that ball.”
+jimmy b: “i figured!”**
+*菠萝爸爸：乔和贾马尔之间的关系……我再给你举个例子：（大学）全国冠军赛结束后，乔拿到了球。那天晚上晚些时候——因为那球很有价值，全国冠军赛的用球嘛——我就说：“嘿，乔，那球在哪儿呢，我想把它带回家收藏起来。“结果他说：”我把它给贾马尔了。’“我说：”你说啥？给贾马尔了？你想过你爸爸可能会很喜欢那球吗。’“他说：”爸爸，贾马尔那天接了150多码，他应该得到那颗球。"所以……这就是他们俩的关系。
+蔡斯爸爸：没错，那个球在我这儿。
+菠萝爸爸：我就知道！*
+
+[有了对象忘了爹啊！](https://www.tumblr.com/ziyechs/796829898673111040/game-ball-saga-pt-3848393929-jimmy-burrow-and?source=share)
 [关于这个球怎么到蔡斯手中更详细的考据、视频请参考](https://www.tumblr.com/ziyechs/796829530107117568/follow-up-to-this-excellent-post-by?source=share)
 
 
@@ -51,8 +60,8 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 </details>
 
 
-### 你能把房子卖给我 让我住他旁边吗？
-[第五名被猛虎选中之后，蔡斯就去菠萝住的那条街挨家挨户敲门，问有没有人愿意把房子卖给他，让他能住在菠萝隔壁。](https://nypost.com/2022/02/11/jamarr-chase-went-to-wild-lengths-to-live-near-bengals-teammate-joe-burrow/)
+### 你能把房子卖给我，让我住他旁边吗？
+[第五名被猛虎选中之后，蔡斯去菠萝住的那条街挨家挨户敲门，问有没有人愿意把房子卖给他，让他能住在菠萝隔壁。](https://nypost.com/2022/02/11/jamarr-chase-went-to-wild-lengths-to-live-near-bengals-teammate-joe-burrow/)
 >翻译：
 *Ja’Marr Chase 真的、真的很想住在 Joe Burrow 附近。
 这位外接手和四分卫不仅是最好的朋友、大学时期的队友，现在还即将一起代表猛虎出战 2022 年超级碗。
@@ -78,9 +87,8 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 2021赛季正式开始前，蔡斯在季前赛的表现与他的选秀名次并不匹配，掉球次数比接球次数还多。赛季前的记者会上，菠萝被问道他对于蔡斯季前赛表现的看法，菠萝坚定的表示：我不会担心，我知道他的能力。随后，在赛季正式开始后的第一场比赛中，蔡斯在7次传球中5次接球拿到101码1个达阵，狠狠打了喷子的脸lol。菠萝在赛后的记者会上调侃蔡斯“差点以为他不会接球了”。此事cbs亦有记载，内含记者会pinky shake一枚。
 [更多详见](https://www.tumblr.com/cementcornfield/756551591985856512/a-retrospective-on-jamarrs-rough-rookie?source=share)
 
-
 ### 
->**So when they went to the super bowl, Ja'Marr Chase reached out to me one week before the super bowl and said "Hey, I wanna get Joe diamond grills for the super bowl. He promised us that when we won the national championship he'd get a gold grill, but here we are in the super bowl and I want to get him a gift, I want to get him a diamond grill." **
+>**So when they went to the super bowl, Ja'Marr Chase reached out to me one week before the super bowl and said "Hey, I wanna get Joe diamond grills for the super bowl. He promised us that when we won the national championship he'd get a gold grill, but here we are in the super bowl and I want to get him a gift, I want to get him a diamond grill."**
 *他们打进超级碗的时候，蔡斯在超级碗前一周联系了我，说：嘿，我想给乔弄个牙钻。他之前（大学时候）答应我，我们赢了全国冠军，他会送我一副金牙套。现在我们进超级碗了，我也想送他个礼物，我想送他个镶钻牙套。’”*
 
 ### 他穿过的队服
@@ -94,23 +102,26 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 
 ![Image](https://github.com/user-attachments/assets/8fb5d5cd-1d21-4150-8649-4a78af60bb54)
 
-### 蔡斯会续约吗？
->**-Joe said yesterday your two careers are always gonna be tied forever, do you agree with that and what's your view of that?
--Nah, it's a fact. I can say I could agree with that. Especially since we've been together what —— I'm starting to lose count now —— like six years now? Seven years now? So we're only going to get better from here....**
-*-乔昨天说，你们两个人的职业生涯会永远紧密相连，你同意这种说法吗？你有什么想法？
--嗯，这是事实。我当然同意他。特别是考虑到我们已经在一起待了——我有时候都记不清了——六年了吧？还是七年了？所以，我们只会越来越好。”*
 
 
 
 ### Donut smash!
 24赛季，第周的比赛刚好是菠萝的生日。在客场险胜达拉斯牛仔队后，让我们一起欢迎名场面：甜甜圈糊脸
+
 ![Image](https://github.com/user-attachments/assets/cfdc2c40-a592-41e3-a5b4-b0673c076b68)
 ![Image](https://github.com/user-attachments/assets/770db36a-3143-4919-b414-a7f69355bb01)
 ![Image](https://github.com/user-attachments/assets/88d5098d-9b87-40fe-bc9a-52a4188cf34d)
 ![Image](https://github.com/user-attachments/assets/f87f033c-0e7e-4dbd-bfe7-7cab1df95898)
 ![Image](https://github.com/user-attachments/assets/df75c84f-c7c5-43d1-9686-bb9bb6694631)
 
+别忘了这个拥抱
 
+
+### 蔡斯会续约吗？
+>**-Joe said yesterday your two careers are always gonna be tied forever, do you agree with that and what's your view of that?
+-Nah, it's a fact. I can say I could agree with that. Especially since we've been together what —— I'm starting to lose count now —— like six years now? Seven years now? So we're only going to get better from here....**
+*-乔昨天说，你们两个人的职业生涯会永远紧密相连，你同意这种说法吗？你有什么想法？
+-嗯，这是事实。我当然同意他。特别是考虑到我们已经在一起待了——我有时候都记不清了——六年了吧？还是七年了？所以，我们只会越来越好。”*
 
 ### 不，爸爸我要和乔在一起，我不会去任何其他队
 
@@ -122,7 +133,7 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 
 <hr>
 
-## 拉钩，上吊，一百年不许变，我们的专属庆祝：pinky shake 
+## 拉钩，上吊，一百年不许变 
 
 两个人从LSU开始就有了专属的庆祝动作：拉小拇指。这个动作多亲密不需要多说了吧！
 ![Image](https://github.com/user-attachments/assets/7ecbf7b2-1973-4c3f-8da1-7aec7993cc95)
