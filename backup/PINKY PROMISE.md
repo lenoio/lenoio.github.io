@@ -8,7 +8,10 @@
 2018赛季是他们在LSU的第一年，蔡斯因为刚高中毕业，上场机会不多，两人连线也因此只有二十多次。
 9月2号，常规赛第一场，排名25的LSU对阵排名第8的迈阿密大学，33比17击败了上赛季防守顶尖的迈阿密。这是乔菠萝的第一场首发比赛（在OSU他只作为替补上场过），也是蔡斯的第一场比赛。
 [B站有这场比赛的全场](https://www.bilibili.com/video/BV1TW411Z7PE)，56：13是菠菜的第一次连线，也是他们所有连线的模板：菠萝永远能穿过人群精准的找到蔡斯。在后面的多角度回看时解说一致同意这是个达阵，但因为后面LSU紧接着就达阵了，所以裁判没有回看。
-菠萝在后来的采访中说：“My first start was his first career college game, we grown together as humans and as players, so we understand each other on a level that is tough to put into words. Just because we've been together for so long since we were kids, so we understand what's doesn't have to be said.”
+
+
+>菠萝在后来的采访中说：
+**My first start was his first career college game, we grown together as humans and as players, so we understand each other on a level that is tough to put into words. Just because we've been together for so long since we were kids, so we understand what's doesn't have to be said.**
 *我的第一场首发比赛也是他的第一场大学比赛。我们作为球员、也作为朋友一起成长，我们之间的理解默契很难用言语来描述。因为我们从年少时就一直在一起，所以有些事我们不用说就能懂对方。*
 
 9月8日，LSU对阵Southeastern La.的比赛中，蔡斯接到了自己的第一个大学达阵，也是菠萝在LSU的第一个达阵：。
@@ -49,8 +52,8 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 
 
 ### 你能把房子卖给我 让我住他旁边吗？
-[在被孟加拉虎选中之后，蔡斯就去菠萝住的那条街挨家挨户敲门，问有没有人愿意把房子卖给他，好让他能住在菠萝隔壁（非常正常的行为）。](https://nypost.com/2022/02/11/jamarr-chase-went-to-wild-lengths-to-live-near-bengals-teammate-joe-burrow/)
-翻译：
+[第五名被猛虎选中之后，蔡斯就去菠萝住的那条街挨家挨户敲门，问有没有人愿意把房子卖给他，让他能住在菠萝隔壁。](https://nypost.com/2022/02/11/jamarr-chase-went-to-wild-lengths-to-live-near-bengals-teammate-joe-burrow/)
+>翻译：
 *Ja’Marr Chase 真的、真的很想住在 Joe Burrow 附近。
 这位外接手和四分卫不仅是最好的朋友、大学时期的队友，现在还即将一起代表猛虎出战 2022 年超级碗。
 所以，当猛虎在去年春天选中 Chase 之后，这位来自 LSU的球员做了一件再合理不过的事——他想尽一切办法，搬到和 Burrow 同一条街上。
@@ -76,6 +79,10 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 [更多详见](https://www.tumblr.com/cementcornfield/756551591985856512/a-retrospective-on-jamarrs-rough-rookie?source=share)
 
 
+### 
+>**So when they went to the super bowl, Ja'Marr Chase reached out to me one week before the super bowl and said "Hey, I wanna get Joe diamond grills for the super bowl. He promised us that when we won the national championship he'd get a gold grill, but here we are in the super bowl and I want to get him a gift, I want to get him a diamond grill." **
+*他们打进超级碗的时候，蔡斯在超级碗前一周联系了我，说：嘿，我想给乔弄个牙钻。他之前（大学时候）答应我，我们赢了全国冠军，他会送我一副金牙套。现在我们进超级碗了，我也想送他个礼物，我想送他个镶钻牙套。’”*
+
 ### 他穿过的队服
 2022赛季，猛虎客场对阵新奥尔良圣徒，菠萝和蔡斯LSU毕业后第一次回到路易斯安那打球。菠萝穿着蔡斯的2019cfb决赛时**穿过的比赛衣服**出现在球场……~~到底什么人会穿队友穿过的比赛服去队友老家啊？而且为什么菠萝会有蔡斯这件衣服啊？菠萝收藏了吗还是临时和蔡斯要的？哪种都很可疑好吗！~~
 <div align="center">
@@ -83,6 +90,15 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
   <img src="https://github.com/user-attachments/assets/2041eceb-3cef-44fc-8497-12db7dd01259" width="48%" alt="蔡斯在cfb决赛">
 </div>
 
+这场比赛后，菠萝被记者问道了穿蔡斯的比赛服：
+
+![Image](https://github.com/user-attachments/assets/8fb5d5cd-1d21-4150-8649-4a78af60bb54)
+
+### 蔡斯会续约吗？
+>**-Joe said yesterday your two careers are always gonna be tied forever, do you agree with that and what's your view of that?
+-Nah, it's a fact. I can say I could agree with that. Especially since we've been together what —— I'm starting to lose count now —— like six years now? Seven years now? So we're only going to get better from here....**
+*-乔昨天说，你们两个人的职业生涯会永远紧密相连，你同意这种说法吗？你有什么想法？
+-嗯，这是事实。我当然同意他。特别是考虑到我们已经在一起待了——我有时候都记不清了——六年了吧？还是七年了？所以，我们只会越来越好。”*
 
 
 
@@ -96,8 +112,12 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 
 
 
+### 不，爸爸我要和乔在一起，我不会去任何其他队
 
-
+>**—Final thing for you two guys and i appreciate your time. i think bengals fans want to know: should we feel confident that joe and ja’marr are going to be nfl teammates for a long, long time?
+— well, i definitely want them to be together and i think ja’marr does too, you know, because i was talking to him one time and i was telling him: ”you know, this is the nfl and this is a business also. so, you know, you might have to go find another quarterback”. and he was like: “no, dad, i’m staying with joe. i’m not going nowhere else.“**
+*—感谢你们接受采访，最后一个问题。我想猛虎队（Bengals）的球迷们想知道：我们是否应该相信乔（Joe Burrow）和贾马尔（Ja’Marr Chase）会很长、很长一段时间都是 NFL 的队友？
+— 嗯，我当然希望他们能一直在一起，我觉得贾马尔也是这么想的。有一次我跟他聊天，我说："你知道，这是 NFL，是商业联盟。所以，你有可能会离开，去其他四分卫打球。"结果他说："不，爸爸，我要和乔在一起，我不会去任何其他队。"*
 
 
 <hr>
@@ -120,6 +140,11 @@ JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后�
 ![Image](https://github.com/user-attachments/assets/66733129-f942-492f-9aef-96a6c6101211)
 ![Image](https://github.com/user-attachments/assets/64796e12-e26a-4d1d-880b-8e5b2af49318)
 
+偶尔，会在媒体前秀一下
+一次是在他们第一个赛季战胜热门强队酋长，拿到分区冠军比赛后的媒体会
+![Image](https://github.com/user-attachments/assets/3a2f42a0-41ef-4cc2-9689-a3a146eeea75)
+
+一次，是在蔡斯拿到
 
 
 [Did we ever figure out if Ja'marr actually buy clothes for Joe?](https://www.tumblr.com/chasedeys/773982107622047744/new-to-joemarr-and-i-have-a-question-did-we-ever?source=share)
