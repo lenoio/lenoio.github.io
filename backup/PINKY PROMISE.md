@@ -174,6 +174,11 @@ jimmy b: “i figured!”**
 >*乔对于记者“你想过不和贾马尔蔡斯打球的可能吗？”的部分回答“我没有那种经历，我也不想去考虑这种可能。”*
 
 
+### 训练营
+![Image](https://github.com/user-attachments/assets/00a00ba3-08b6-42ad-8e09-1ba9e7659e7b)
+![Image](https://github.com/user-attachments/assets/63ac1d94-aaed-4961-acef-56545ce8f503)
+
+
 <hr>
 
 ## 拉钩，上吊，一百年不许变 
@@ -226,15 +231,16 @@ jimmy b: “i figured!”**
 ![Image](https://github.com/user-attachments/assets/3c10d6da-8423-4ba3-b65a-a22e2d5c3d0c)
 ![Image](https://github.com/user-attachments/assets/a8f05d45-ee7b-48ee-814b-41b82568d482)
 
-![Image](https://github.com/user-attachments/assets/00a00ba3-08b6-42ad-8e09-1ba9e7659e7b)
-![Image](https://github.com/user-attachments/assets/63ac1d94-aaed-4961-acef-56545ce8f503)
+
 <img width="1088" height="536" alt="Image" src="https://github.com/user-attachments/assets/b9c0dd8e-0aa5-4f15-8770-cfeb37cc62dc" />
-![Image](https://github.com/user-attachments/assets/eac3e1ff-c033-4ffc-bebd-dab16916f9c4)
+
 ![Image](https://github.com/user-attachments/assets/5b3a9315-95bf-44c1-9329-68a21d737c2f)
 <img width="724" height="481" alt="Image" src="https://github.com/user-attachments/assets/ca3371fc-f3a6-4ce5-bb2e-ce6f90a7ec5d" />
+
 ![Image](https://github.com/user-attachments/assets/6b81f2b4-c00c-4313-82ab-9073811459a3)
-![Image](https://github.com/user-attachments/assets/8b130a60-2e64-4d81-ab96-d3fe61ea163b)
+
 <img width="1024" height="743" alt="Image" src="https://github.com/user-attachments/assets/0d91bb01-a21e-4019-9948-220ee232dd12" />
+
 ![Image](https://github.com/user-attachments/assets/d46c2f88-768b-4dbc-b41b-79b58a21bfa1)
 ![Image](https://github.com/user-attachments/assets/f847df78-4e99-46ef-8d70-403dbd12accb)
 
@@ -243,6 +249,5 @@ jimmy b: “i figured!”**
 ![Image](https://github.com/user-attachments/assets/b9a3eb29-3b1f-4074-b4a5-17bc6e2b86b8)
 
 
-![Image](https://github.com/user-attachments/assets/dd2ced7f-50bb-418b-a595-bf437b62e28c)
-
-
+![Image](https://github.com/user-attachments/assets/eac3e1ff-c033-4ffc-bebd-dab16916f9c4)
+![Image](https://github.com/user-attachments/assets/8b130a60-2e64-4d81-ab96-d3fe61ea163b)
