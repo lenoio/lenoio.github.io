@@ -6,6 +6,7 @@
 不过没关系，LSU即将组建一支被很多人心中的史上最强大学橄榄球球队。
 
 **2018赛季**是他们在LSU的第一年，蔡斯因为刚高中毕业，上场机会不多，两人连线也因此只有二十多次。
+[When you transferred to LSU, how much did you know about [Ja'Marr] before he got there?](https://www.tumblr.com/cementcornfield/771416785940594688?source=share)
 
 ### 他接住了我的第一个达阵
 9月2号，常规赛第一场，排名25的LSU对阵排名第8的迈阿密大学，33比17击败了上赛季防守顶尖的迈阿密。这是乔菠萝的第一场首发比赛（在OSU他只作为替补上场过），也是蔡斯的第一场比赛。
@@ -18,6 +19,7 @@
 9月8日，LSU对阵Southeastern La.的比赛中，蔡斯接到了自己的第一个大学达阵，也是菠萝在LSU的第一个达阵：。
 
 **2019赛季**，LSU换了传球进攻协调员，从注重跑球的地面进攻为主的传统力量型打法，转型到跑传选项进攻，蔡斯也获得了主力外接手的身份。这一年的LSU的进攻组，被公认为是大学橄榄球的天花板，面对史上最难的赛程（7个前10的对手），以15-0的战绩不败夺冠。
+
 ![Image](https://github.com/user-attachments/assets/2e348f29-0f77-458d-bc65-88eb6b9edd00)
 ![Image](https://github.com/user-attachments/assets/b769d2bf-b7fe-4a39-bd13-7f824a6fdc18)
 
@@ -25,6 +27,7 @@
 LSU时期，有记者采访主力外接手三人组时，问了一个问题：乔菠萝最喜欢谁（是的她真的就问了“Who does quarterback Joe Burrow like best?”）
 JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后马歇尔选择了蔡斯：“我不知道啊，他给蔡斯传球老多了，太多了！”然后蔡斯开始尴尬、谜之害羞的大笑……
 我请问在害羞什么呢？他的四分卫比他大三岁，比他多打两年比赛。蔡斯只和菠萝打过，但菠萝在OSU就和所以其实并不确定。~~这里还有个很好品的点是，其实JJ接球次数比蔡斯多三分之一，但马歇尔觉得菠萝更喜欢给蔡斯扔球，为什么？蔡斯在LSU主要跑深远路线，JJ主要跑近距离，远距离天生更难传。问看过那年LSU的人，他们会告诉你，有时候其实JJ的机会比蔡斯更好，更open，旁边没有人，但菠萝仍然会选择传给蔡斯。~~
+[Terrance came in and stan for Joemarr love](https://www.tumblr.com/demonmodeleclerc/743212498388418560/who-does-quarterback-joe-burrow-like-best-i?source=share)
 
 
 ### 决赛用球去哪了？
@@ -90,14 +93,23 @@ jimmy b: “i figured!”**
 **2021赛季**正式开始前，蔡斯在季前赛的表现与他的选秀名次并不匹配，掉球次数比接球次数还多。赛季前的记者会上，菠萝被问道他对于蔡斯季前赛表现的看法，菠萝坚定的表示：我不会担心，我知道他的能力。随后，在赛季正式开始后的第一场比赛中，蔡斯在7次传球中5次接球拿到101码1个达阵，狠狠打了喷子的脸lol。菠萝在赛后的记者会上调侃蔡斯“差点以为他不会接球了”。此事cbs亦有记载，内含记者会pinky shake一枚。
 [更多详见](https://www.tumblr.com/cementcornfield/756551591985856512/a-retrospective-on-jamarrs-rough-rookie?source=share)
 
-### 
+### AFC冠军
 
-加时击败酋长，加冕AFC冠军
+21赛季，第一年在nfl合体的菠菜势不可挡，常规赛10-7，获得分区第一，季后赛一路杀进AFC决赛。AFC决赛一度3-21落后，下半场绝地逆转，加时击败酋长，加冕AFC冠军。
+
 ![Image](https://github.com/user-attachments/assets/722cbc1a-60b3-4241-8dc6-c64d96700642)
+
+[附赠颁奖小互动](https://www.tumblr.com/cazluvsu/764740360771649536?source=share)
+
 
 >**So when they went to the super bowl, Ja'Marr Chase reached out to me one week before the super bowl and said "Hey, I wanna get Joe diamond grills for the super bowl. He promised us that when we won the national championship he'd get a gold grill, but here we are in the super bowl and I want to get him a gift, I want to get him a diamond grill."**
 *他们打进超级碗的时候，蔡斯在超级碗前一周联系了我，说：嘿，我想给乔弄个牙钻。他之前（大学时候）答应我，我们赢了全国冠军，他会送我一副金牙套。现在我们进超级碗了，我也想送他个礼物，我想送他个镶钻牙套。’”*
+
+最后虽然超级碗惜败，蔡斯应该还是送了菠萝牙钻
+
 ![Image](https://github.com/user-attachments/assets/bd0f8fa4-e105-4d08-8d5b-14fd71067604)
+
+
 
 ### 他穿过的队服
 **2022赛季**，猛虎客场对阵新奥尔良圣徒，菠萝和蔡斯LSU毕业后第一次回到路易斯安那打球。菠萝穿着蔡斯的2019cfb决赛时**穿过的比赛衣服**出现在球场……~~到底什么人会穿队友穿过的比赛服去队友老家啊？而且为什么菠萝会有蔡斯这件衣服啊？菠萝收藏了吗还是临时和蔡斯要的？哪种都很可疑好吗！~~
@@ -114,13 +126,15 @@ jimmy b: “i figured!”**
 
 ### Donut smash!
 24赛季，猛虎第14周的比赛刚好是菠萝的生日。在客场险胜达拉斯牛仔队后，让我们一起欢迎名场面：甜甜圈糊脸
+
 <div align="center">
-  <img src="https://github.com/user-attachments/assets/5e4daded-a6d1-4444-85fd-9a23cd3f43a0" width="50%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
-  <img src="https://github.com/user-attachments/assets/e98086ec-14e4-478b-85d9-450cd80fe1ba" width="59%" alt="蔡斯在cfb决赛">
+  <img src="https://github.com/user-attachments/assets/5e4daded-a6d1-4444-85fd-9a23cd3f43a0" width="48%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
+  <img src="https://github.com/user-attachments/assets/e98086ec-14e4-478b-85d9-450cd80fe1ba" width="48%" alt="蔡斯在cfb决赛">
 </div>
+
 <div align="center">
-  <img src="https://github.com/user-attachments/assets/8d951b66-4236-45f3-9ae3-732f630bb10c" width="50%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
-  <img src="https://github.com/user-attachments/assets/46dbfc5f-4d3c-4f8e-b7ad-55b267cae55a" width="50%" alt="蔡斯在cfb决赛">
+  <img src="https://github.com/user-attachments/assets/8d951b66-4236-45f3-9ae3-732f630bb10c" width="48%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
+  <img src="https://github.com/user-attachments/assets/46dbfc5f-4d3c-4f8e-b7ad-55b267cae55a" width="48%" alt="蔡斯在cfb决赛">
 </div>
 
 ![Image](https://github.com/user-attachments/assets/46dbfc5f-4d3c-4f8e-b7ad-55b267cae55a)
@@ -175,8 +189,20 @@ jimmy b: “i figured!”**
 
 
 ### 训练营
-![Image](https://github.com/user-attachments/assets/00a00ba3-08b6-42ad-8e09-1ba9e7659e7b)
-![Image](https://github.com/user-attachments/assets/63ac1d94-aaed-4961-acef-56545ce8f503)
+<div align="center">
+  <img src="https://github.com/user-attachments/assets/00a00ba3-08b6-42ad-8e09-1ba9e7659e7b" width="48%" alt="菠萝穿着蔡斯在cfb决赛穿的衣服">
+  <img src="https://github.com/user-attachments/assets/63ac1d94-aaed-4961-acef-56545ce8f503" width="48%" alt="蔡斯在cfb决赛">
+</div>
+
+
+### 你们之间的关系就像婚姻一样亲密
+
+
+
+### 
+
+[oh my joemarr you are so precious to me](https://www.tumblr.com/dominiks/801435074342141952/oh-my-joemarr-you-are-so-precious-to-me?source=share)
+[joe youre not subtle at all....](https://www.tumblr.com/dominiks/801436993845362688/joe-youre-not-subtle-at-all?source=share)
 
 
 <hr>
@@ -187,16 +213,13 @@ jimmy b: “i figured!”**
 ![Image](https://github.com/user-attachments/assets/7ecbf7b2-1973-4c3f-8da1-7aec7993cc95)
 其实基本每次大码数接球或者达阵下场之后都会做，但基本要在球迷拍的小视频里才能看到，标准模板就是菠萝在边线伸出手等蔡斯自动靠过来，或者蔡斯伸出手，等菠萝靠近自动完成拉钩。
   <img src="https://github.com/user-attachments/assets/e2839e40-d347-4ae0-8721-4a847abc41db" width="98%" alt="蔡斯在cfb决赛">
-
-<img src="[图片链接](https://github.com/user-attachments/assets/e2839e40-d347-4ae0-8721-4a847abc41db)" width="150%">
-
 ![Image](https://github.com/user-attachments/assets/e2839e40-d347-4ae0-8721-4a847abc41db)
 ![Image](https://github.com/user-attachments/assets/fee2d963-7c02-4ff3-9668-6c4103b264a5)
 ![Image](https://github.com/user-attachments/assets/25d0dce9-4c98-4162-b648-68e9b8f5db05)
 ![Image](https://github.com/user-attachments/assets/a5eaa35a-026b-4966-a074-e0cb9a6f5de5)
 ![Image](https://github.com/user-attachments/assets/3516f5ed-5479-4a26-90eb-18e26fba1041)
-![Image](https://github.com/user-attachments/assets/72d68dc0-6876-4bc0-b5aa-643531c5e616)
 ![Image](https://github.com/user-attachments/assets/a6c432c8-cd5a-44ea-bbfb-8b35c6e224a4)
+![Image](https://github.com/user-attachments/assets/d46c2f88-768b-4dbc-b41b-79b58a21bfa1)
 
 有时候，也会出现菠萝穿过半个球场找蔡斯拉钩的画面
 
@@ -208,7 +231,8 @@ jimmy b: “i figured!”**
 一次是在他们第一个赛季战胜热门强队酋长，拿到分区冠军比赛后的媒体会
 ![Image](https://github.com/user-attachments/assets/3a2f42a0-41ef-4cc2-9689-a3a146eeea75)
 
-一次，是在蔡斯拿到最佳进攻组新秀
+一次是在蔡斯拿到最佳进攻组新秀
+![Image](https://github.com/user-attachments/assets/72d68dc0-6876-4bc0-b5aa-643531c5e616)
 ![Image](https://github.com/user-attachments/assets/36d4bf69-14b3-40b7-bd4f-b93c47f34349)
 
 [Did we ever figure out if Ja'marr actually buy clothes for Joe?](https://www.tumblr.com/chasedeys/773982107622047744/new-to-joemarr-and-i-have-a-question-did-we-ever?source=share)
@@ -231,23 +255,20 @@ jimmy b: “i figured!”**
 ![Image](https://github.com/user-attachments/assets/3c10d6da-8423-4ba3-b65a-a22e2d5c3d0c)
 ![Image](https://github.com/user-attachments/assets/a8f05d45-ee7b-48ee-814b-41b82568d482)
 
-
+1
 <img width="1088" height="536" alt="Image" src="https://github.com/user-attachments/assets/b9c0dd8e-0aa5-4f15-8770-cfeb37cc62dc" />
-
+2
 ![Image](https://github.com/user-attachments/assets/5b3a9315-95bf-44c1-9329-68a21d737c2f)
 <img width="724" height="481" alt="Image" src="https://github.com/user-attachments/assets/ca3371fc-f3a6-4ce5-bb2e-ce6f90a7ec5d" />
-
+3
 ![Image](https://github.com/user-attachments/assets/6b81f2b4-c00c-4313-82ab-9073811459a3)
-
+4
 <img width="1024" height="743" alt="Image" src="https://github.com/user-attachments/assets/0d91bb01-a21e-4019-9948-220ee232dd12" />
 
-![Image](https://github.com/user-attachments/assets/d46c2f88-768b-4dbc-b41b-79b58a21bfa1)
+5
 ![Image](https://github.com/user-attachments/assets/f847df78-4e99-46ef-8d70-403dbd12accb)
 
 
 最后，让全世界祝福菠菜早日拿戒指：
 ![Image](https://github.com/user-attachments/assets/b9a3eb29-3b1f-4074-b4a5-17bc6e2b86b8)
 
-
-![Image](https://github.com/user-attachments/assets/eac3e1ff-c033-4ffc-bebd-dab16916f9c4)
-![Image](https://github.com/user-attachments/assets/8b130a60-2e64-4d81-ab96-d3fe61ea163b)
