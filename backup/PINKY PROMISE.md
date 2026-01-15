@@ -25,8 +25,8 @@
 
 ### 乔最喜欢谁？
 LSU时期，有记者采访主力外接手三人组时，问了一个问题：乔菠萝最喜欢谁（是的她真的就问了“Who does quarterback Joe Burrow like best?”）
-JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。最后马歇尔选择了蔡斯：“我不知道啊，他给蔡斯传球老多了，太多了！”然后蔡斯开始尴尬、谜之害羞的大笑……
-我请问在害羞什么呢？他的四分卫比他大三岁，比他多打两年比赛。蔡斯只和菠萝打过，但菠萝在OSU就和所以其实并不确定。~~这里还有个很好品的点是，其实JJ接球次数比蔡斯多三分之一，但马歇尔觉得菠萝更喜欢给蔡斯扔球，为什么？蔡斯在LSU主要跑深远路线，JJ主要跑近距离，远距离天生更难传。问看过那年LSU的人，他们会告诉你，有时候其实JJ的机会比蔡斯更好，更open，旁边没有人，但菠萝仍然会选择传给蔡斯。~~
+JJ马上drama抢答：ME！随后蔡斯略带犹豫的选择了自己。紧接着马歇尔选择了蔡斯：“我不知道啊，他给蔡斯传球老多了，太多了！”然后蔡斯开始尴尬、谜之害羞的大笑……
+请问在害羞什么呢？他的四分卫比他大三岁，比他多打两年比赛。蔡斯只和菠萝打过，但菠萝在OSU就和所以其实并不确定。这里还有个很好品的点是，其实JJ接球次数比蔡斯多三分之一，但马歇尔觉得菠萝更喜欢给蔡斯扔球。为什么？蔡斯在LSU主要跑深远路线，JJ主要跑近距离，远距离天生更难传。问看过那年LSU的人，他们会告诉你，有时候其实JJ的机会比蔡斯更好，更open，旁边没有人，但菠萝仍然会选择传给蔡斯。
 [Terrance came in and stan for Joemarr love](https://www.tumblr.com/demonmodeleclerc/743212498388418560/who-does-quarterback-joe-burrow-like-best-i?source=share)
 
 
@@ -46,7 +46,7 @@ jimmy b: “i figured!”**
 蔡斯爸爸：没错，那个球在我这儿。
 菠萝爸爸：我就知道！*
 
-[有了对象忘了爹啊！](https://www.tumblr.com/ziyechs/796829898673111040/game-ball-saga-pt-3848393929-jimmy-burrow-and?source=share)
+[有了对象忘了爹！](https://www.tumblr.com/ziyechs/796829898673111040/game-ball-saga-pt-3848393929-jimmy-burrow-and?source=share)
 
 [更多视频考据请点击](https://www.tumblr.com/ziyechs/796829530107117568/follow-up-to-this-excellent-post-by?source=share)
 
@@ -76,7 +76,7 @@ jimmy b: “i figured!”**
 所以，当猛虎在去年春天选中 Chase 之后，这位来自 LSU的球员做了一件再合理不过的事——他想尽一切办法，搬到和 Burrow 同一条街上。
 他选择，挨家挨户敲门，直接开口买房。
 《The Athletic》猛虎随队记者 Paul Dehner Jr. 本周在播客 《Hear That Podcast Growlin’》 里爆料说：
-“他直接跑到 Joe Burrow 住的那条街，一家一家的敲门，对每一户都说想买他们的房子。”
+“他直接跑到 Joe Burrow 那条街，一家一家的敲门，对每一户都说想买他们的房子。”
 “然后你猜怎么着？他真的买到了。有个人把房子卖给他了，所以现在他就住在 Joe Burrow 隔壁——就在那条小街上，他们现在简直像一整个幸福大家庭。”
 “他基本就是挨家挨户地说：‘你好，我是 Ja’Marr Chase。我很有钱，我想买你的房子。’
 最后还真让他找到了愿意卖的人，现在他们成邻居了。”
@@ -206,7 +206,8 @@ jimmy b: “i figured!”**
 记者也问过菠萝类似的问题：
 
 ![Image](https://github.com/user-attachments/assets/b96c4a78-a63d-41df-a0fc-25e7d3436d13)
->*乔对于记者“你想过不和贾马尔蔡斯打球的可能吗？”的部分回答“我没有那种经历，我也不想去考虑这种可能。”*
+>*记者：“你想过你不和贾马尔蔡斯打球的世界吗？”
+菠萝：“我没有经历过这种情况，我也不想考虑不和他打球的可能性。”*
 
 
 ### 训练营
@@ -224,7 +225,7 @@ jimmy b: “i figured!”**
 -One part of a marriage - trust me - do you guys fight? You and Ja'Marr?
 -Have we ever fought....um...we certainly have been frustrated with each other. Do we verbalize it? Not often. Typically, if that happens, one of us knows that either we didn't play the play the way we wanted to or I didn't throw it to him when I should have. And usually it's just, one of us is really mad, and the other of us is frustrated that he's mad. And then we see the clip and we're like ah, my bad bro. And he's like, yeah, or I'm like, yeah. We gotta be better. And that's about it. **
 -I mean, I take it back. It's not like a marriage at all. This is way better than any marriage. 
-*-在我看来，你们俩（菠萝和蔡斯）就像是拥有了一段橄榄球婚姻。你们在大学相遇，搬到了同一座城市，为同一家公司（球队）工作，甚至双方父母都相处得很好。这些年来，你们这种婚姻关系有什么演变吗？
+*-我看着你们俩（菠萝和蔡斯），感觉你们就像是拥有了一段橄榄球婚姻。你们在大学相遇，搬到了同一座城市，为同一家公司（球队）工作，甚至双方父母都相处得很好。这些年来，你们这种婚姻关系有什么演变吗？
 -现在的日常交流肯定变少了。因为我们太懂对方了。你知道，就像那种老夫老妻，一旦你们互相理解、相处得很舒服了，就没必要非得……那种尽在不言中的感觉，你知道吧？我觉得我们就是这种关系。我们每天还是会聊足球，聊聊战术细节，或者针对不同的防守阵型讨论不同的路线跑法。但现在的沟通效率太高了，根本不需要多废话。所有的防守我们都见过，所有的路线都跑过，所有的传球都……该练的都练烂了。所以，只要快速回想一下，比如：“嘿，记得咱们上次那样搞吗？就那样弄。” 然后嘭地一下，我们就搞定了。
 -作为婚姻的一部分——相信我——吵架，你们有过吗？你和贾马尔？
 -我们吵过架吗……嗯……我们肯定互相闹过情绪。会直接发泄出来吗？很少。发生这种情况的时候，一般我们自己心里都清楚，要么是他没跑好路线，要么是我该传的时候没传给他。通常情况就是，一个人真的很火大，另一个人则因为对方在生气而感到生气。然后等我们回头看了比赛录像，就会说：“啊，我的锅，兄弟。” 对方就会说：“行吧”，或者我说：”行，下次注意。“差不多就是这样。
@@ -237,7 +238,7 @@ jimmy b: “i figured!”**
 ### 采访对谁wink呢
 
 25赛季第二周，菠萝脚趾骨折。本来预计至少要三个月，基本等于赛季报销。但菠萝对自己时真狠，两个多月就在感恩节复出了，周四夜赛客场对阵分区老对手乌鸦，笑纳对面频频失误送大礼，乌鸦球迷到第四节几乎全被气提前走了。
-感恩节赛传统时赛后有吃火鸡的环节，欸怎么有人在采访时候挤眉弄眼的呢？
+感恩节赛传统时赛后有吃火鸡的环节，怎么有人在采访时候挤眉弄眼的呢？
 
 [oh my joemarr you are so precious to me](https://www.tumblr.com/dominiks/801435074342141952/oh-my-joemarr-you-are-so-precious-to-me?source=share)
 [joe youre not subtle at all....](https://www.tumblr.com/dominiks/801436993845362688/joe-youre-not-subtle-at-all?source=share)
@@ -282,6 +283,8 @@ jimmy b: “i figured!”**
 ![Image](https://github.com/user-attachments/assets/72d68dc0-6876-4bc0-b5aa-643531c5e616)
 
 
+### 你们喜欢乔的搭配吗？我帮他买的
+
 [Did we ever figure out if Ja'marr actually buy clothes for Joe?](https://www.tumblr.com/chasedeys/773982107622047744/new-to-joemarr-and-i-have-a-question-did-we-ever?source=share)
 
 
@@ -304,8 +307,6 @@ jimmy b: “i figured!”**
 ![Image](https://github.com/user-attachments/assets/f847df78-4e99-46ef-8d70-403dbd12accb)
 
 
-
-只要看到
 
 ![Image](https://github.com/user-attachments/assets/f604a947-f2b2-4865-9d23-8a12b76bb451)
 ![Image](https://github.com/user-attachments/assets/3c10d6da-8423-4ba3-b65a-a22e2d5c3d0c)
