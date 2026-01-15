@@ -163,7 +163,6 @@ jimmy b: “i figured!”**
 <img width="1903" height="1050" alt="Image" src="https://github.com/user-attachments/assets/33071406-dddb-4353-bdef-fe3f06c8a11e" />
 ![Image](https://github.com/user-attachments/assets/255bf5b7-0665-48d1-b1f5-074c472fe8bd)
 
-别忘了这个拥抱
 
 
 
@@ -307,18 +306,19 @@ jimmy b: “i figured!”**
 ![Image](https://github.com/user-attachments/assets/f847df78-4e99-46ef-8d70-403dbd12accb)
 
 
+看见对方就会笑的是什么关系？
 
 ![Image](https://github.com/user-attachments/assets/f604a947-f2b2-4865-9d23-8a12b76bb451)
 ![Image](https://github.com/user-attachments/assets/3c10d6da-8423-4ba3-b65a-a22e2d5c3d0c)
 ![Image](https://github.com/user-attachments/assets/a8f05d45-ee7b-48ee-814b-41b82568d482)
-
-1
-<img width="1088" height="536" alt="Image" src="https://github.com/user-attachments/assets/b9c0dd8e-0aa5-4f15-8770-cfeb37cc62dc" />
-2
 <img width="724" height="481" alt="Image" src="https://github.com/user-attachments/assets/ca3371fc-f3a6-4ce5-bb2e-ce6f90a7ec5d" />
-3
 
-4
+蔡斯在队友误擒菠萝后为菠萝出头：
+
+<img width="1088" height="536" alt="Image" src="https://github.com/user-attachments/assets/b9c0dd8e-0aa5-4f15-8770-cfeb37cc62dc" />
+
+2025休赛期，菠萝和蔡斯都巴黎参加不同的时装周，两人在结束后碰面：
+
 <img width="1024" height="743" alt="Image" src="https://github.com/user-attachments/assets/0d91bb01-a21e-4019-9948-220ee232dd12" />
 
 
